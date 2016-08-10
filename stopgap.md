@@ -44,7 +44,7 @@ As soon as he set foot into the sandwich shop he could here Sarge, who was in a 
 -"Juices are flowing down here" then, after a short pause, "juices are flowing down here!"
 -Yeah well don't go into the details, please. It's not like I haven't been there before... I know what goes on." Martin looked up and met Dave's eyes past the prep counter window. "Well well"
 Then Sarge looked up:
--Dave! "He turned to the clock, then back to Dave" and on point. Early even! Well am I glad to see you. Because this guy, this guy here "he nudged Martin with his elbow" this guy is crazier than a bag of cat! He's getting me all... in-vi-gorated with his stories. Man, what'd I'd give to be your age " he pointed his chin towards Dave" and his looks! Oh boy. Wouldn't I be happy. I would be the happiest owner of a sandwich franchise in this city.
+-Dave! "He turned to the clock, then back to Dave" and on point. Early even! Well am I glad to see you. Because this guy, this guy here "he nudged Martin with his elbow" this guy is crazier than a bag of cat! He's getting me all... in-vi-gorated with his stories. Man, what'd I'd give to be your age " he pointed his chin towards Dave" and his looks! Oh boy. Wouldn't I be happy. In retrospect, there is a lot of people I wish I'd had fucked and I wouldn't make the same mistake twiice. I would be the happiest owner of a sandwich franchise in this city.
 
 
 #####
