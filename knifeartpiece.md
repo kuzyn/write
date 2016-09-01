@@ -1,0 +1,1 @@
+to fill up a 4meters x 4meters room with knives hanging from the ceiling (assuming that they'd take 1 square inch space), we'd need 2065 knives.SHE SAID CHECK THIS OUT AND PUT THE WHOLE LIME SLICE IN HER MOUTH, NICE LITTLE LIPS WITH A PERMANENT SMIRK, AND I THOUGH SHE WOULD DO A TRICK BUT THE TRICK WAS EATING IT WITH THE PEEL.

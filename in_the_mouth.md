@@ -1,4 +1,4 @@
-:cellphone sagging in my pocket
+cellphone sagging in my pocket
 lump in my throat
 looking below & looking over
 listening in

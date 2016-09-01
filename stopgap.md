@@ -4,51 +4,269 @@ the cover is a burn bag pattern
 
 25 pages / 5000 words
 
-a story about: selfishness/selfconsumption, scope & closure, virtuality, looking for then overlooking help, indulgence in all its forms.
+a story about: selfishness/selfconsumption, scope & closure, virtuality, looking
+for then overlooking help, indulgence in all its forms.
 
-When he woke up there was a hole in his head where there used to be dreams and sleep. He turned around. He squinted down, head hanging past the mattress, stomach flat, looking at the grey carpet under him, under his bed. He saw little dots of color, crumbs and hairs. The dots reminded him of when he was younger and he'd close his eyes trying to get to sleep but kinda teasing himself not to at the same time, and in the inside of his lids he'd see millions of tiny dots red and blue flashing and they'd be like, when you're looking at the sky and it's the milky way and you see that something is there, but you can't really stop your eyes on the individual stars because there are so many of them all being milky. But as soon as you move your big bulky beautiful head, there they are, billions and billions and billions.
+When he woke up there was a hole in his head where there used to be dreams and
+sleep. He turned around. He squinted down, head hanging past the mattress,
+stomach flat, looking at the grey carpet under him, under his bed. He saw little
+dots of color, crumbs and hairs. The dots reminded him of when he was younger
+and he'd close his eyes trying to get to sleep but kinda teasing himself not to
+at the same time, and in the inside of his lids he'd see millions of tiny dots
+red and blue flashing and they'd be like, when you're looking at the sky and
+it's the milky way and you see that something is there, but you can't really
+stop your eyes on the individual stars because there are so many of them all
+being milky. But as soon as you move your big bulky beautiful head, there they
+are, billions and billions and billions.
 
-There was some drooling, or damp breathing, on his cotton sheets. He just looked at the floor for one more moment, the fact that he was abled body and concious was welcomed. In a couple of decades, sleep had evolved from something that he did for fun and without effort, to this scary pilgrimage into his own selfness and looking for things that maybe were there but most probably weren't or if they were, they were the bitteres fruits of his victory garden of the soul and mind and heart. His was tired already and the only awake thing so far was apparently his sense of dread and his eyesight. He sighted and turned his big beautiful head around, a big ol'180 degrees back, looking at the ceiling. He felt like thinking about the ceiling and seeing where that'd go, but stopped himself, since he'd already bored himself once today by looking at the floor. His life was a succession of looking at more or less flat surfaces and depending of how close or how far they were, boring himself to death with either intrinsinct or gigantic details. Oh look, a wall. Oh, a painting. Oh, look the clouds, makes me think of when I was 6, blah, blah. Oh a screen. Oh, someone face. Fuck this he muttered, and did a 180 back, powf, back to looking the floor. He fell asleep right away.
+There was some drooling, or damp breathing, on his cotton sheets. He just looked
+at the floor for one more moment, the fact that he was abled body and concious
+was welcomed. In a couple of decades, sleep had evolved from something that he
+did for fun and without effort, to this scary pilgrimage into his own selfness
+and looking for things that maybe were there but most probably weren't or if
+they were, they were the bitteres fruits of his victory garden of the soul and
+mind and heart. His was tired already and the only awake thing so far was
+apparently his sense of dread and his eyesight. He sighted and turned his big
+beautiful head around, a big ol'180 degrees back, looking at the ceiling. He
+felt like thinking about the ceiling and seeing where that'd go, but stopped
+himself, since he'd already bored himself once today by looking at the floor.
+His life was a succession of looking at more or less flat surfaces and depending
+of how close or how far they were, boring himself to death with either
+intrinsinct or gigantic details. Oh look, a wall. Oh, a painting. Oh, look the
+clouds, makes me think of when I was 6, blah, blah. Oh a screen. Oh, someone
+face. Fuck this he muttered, and did a 180 back, powf, back to looking the
+floor. He fell asleep right away.
 
-Since he ran a bit late, he held his shit in from his apartement to his work, waiting to be done with his commute to be his most vulnerable. In spite of this, there was passion in his strut, a drive and assurance, a come hither kinda thing going on. But that was most days, most times, most everything about him. He was tall, big lips, long-ish hair, splashed himself with the barkiest perfumes, he smoked and talked very little. He didn't have too; he'd get most things without having to open up, just look and look, a little smirk, his blue eyes just there, like hanging ornaments on a beautiful head. It was not too big or asymetrical or perfectly and boringly round: his jaw was strong and square and just hung there, again, like a piece of a christmas tree but not the flashy parts, the overlooked and taken-for-granted part: the base. In other words, his jaw was the base of his face. His bod was also great, in all the usual way (tanned, a couple of bad tats here and there, scars from doing kool stuff like playing pool or being drunk).
-He finally made it to work. Good for him! "Good for me" he thought, as he entered the sandwich shop.
+Since he ran a bit late, he held his shit in from his apartement to his work,
+waiting to be done with his commute to be his most vulnerable. In spite of this,
+there was passion in his strut, a drive and assurance, a come hither kinda thing
+going on. But that was most days, most times, most everything about him. He was
+tall, big lips, long-ish hair, splashed himself with the barkiest perfumes, he
+smoked and talked very little. He didn't have too; he'd get most things without
+having to open up, just look and look, a little smirk, his blue eyes just there,
+like hanging ornaments on a beautiful head. It was not too big or asymetrical or
+perfectly and boringly round: his jaw was strong and square and just hung there,
+again, like a piece of a christmas tree but not the flashy parts, the overlooked
+and taken-for-granted part: the base. In other words, his jaw was the base of
+his face. His bod was also great, in all the usual way (tanned, a couple of bad
+tats here and there, scars from doing kool stuff like playing pool or being
+drunk).
+He finally made it to work. Good for him! "Good for me" he thought, as he
+entered the sandwich shop.
 
--Hey, you're a bit late dude
--Yeah
--Well, I end up havin to clean up the mess from yesterday while you take your sweet-ass time t'get here.
+-Hey, you're a bit late dude -Yeah -Well, I end up havin to clean up the mess
+from yesterday while you take your sweet-ass time t'get here.
 -Uh...
-Dave went around the counter and walked back into the small room in the back, put on his working shirt and walked back straight to the main work counter, half-listening to the unplugged monologue of his manager. His manager was an ex-fellon with a gravely voice who introduced himself as Sarge, and had a goatee that read like a perverted Rorscharch test.
--You know and I know that CB and Jeff don give a shit about this sandwich shop, but sure do and I though you did. I really though you did. When I see you put togheter a number 4 or an "A. Tuna Meltzer", you seem to put your heart into it you know, I really see it. I pick up on that stuff, I'm very... what's the word...
-Sarge turned on his side, projected the knife he was holding knife back into the mayo vat, then passed the sandwich to Dave, who in turn filled it with stuff that used to moo.
--I'm perceptive!" Sarge said, twisting his fat neck around and up. "And I know something has been on your mind dude, something has been gnawing at you and you can't shake it and it shows" Sarge pointed at the sandwich that Dave was making, which by that time had became completely vulgar and deconstructed. Then he lowered his voice "It fuckin shows dude. First sandwich of the day: you'd eat that? Look at it. That's not a "Moolin Rouge", it doesn't even look like a number 2... Dude, it doesn't even look like it's on the menu!" Sarge subtely looked at the customer who was absorbed by his handheld internet. Then, Sarge sighed and speaking even lower, closer: "Dave, Stop. Look at me, it does not even look like it's a goddamn sandwich". There was some pain in his voice, nothing overblown or tacky, just the kind of disapointement coming from someone who knows how things should be but is facing what they actually are.
--It's okay Dave, I didn't mean to shake the cage like that. Grab a coffee, take five minutes to arrive, I'll finish this. It's alright. It's alright.
+Dave went around the counter and walked back into the small room in the back,
+put on his working shirt and walked back straight to the main work counter,
+half-listening to the unplugged monologue of his manager. His manager was an
+ex-fellon with a gravely voice who introduced himself as Sarge, and had a goatee
+that read like a perverted Rorscharch test.  -You know and I know that CB and
+Jeff don give a shit about this sandwich shop, but sure do and I though you did.
+I really though you did. When I see you put togheter a number 4 or an "A. Tuna
+Meltzer", you seem to put your heart into it you know, I really see it. I pick
+up on that stuff, I'm very... what's the word...
+Sarge turned on his side, projected the knife he was holding knife back into the
+mayo vat, then passed the sandwich to Dave, who in turn filled it with stuff
+that used to moo.  -I'm perceptive!" Sarge said, twisting his fat neck around
+and up. "And I know something has been on your mind dude, something has been
+gnawing at you and you can't shake it and it shows" Sarge pointed at the
+sandwich that Dave was making, which by that time had became completely vulgar
+and deconstructed. Then he lowered his voice "It fuckin shows dude. First
+sandwich of the day: you'd eat that? Look at it. That's not a "Moolin Rouge", it
+doesn't even look like a number 2... Dude, it doesn't even look like it's on the
+menu!" Sarge subtely looked at the customer who was absorbed by his handheld
+internet. Then, Sarge sighed and speaking even lower, closer: "Dave, Stop. Look
+at me, it does not even look like it's a goddamn sandwich". There was some pain
+in his voice, nothing overblown or tacky, just the kind of disapointement coming
+from someone who knows how things should be but is facing what they actually
+are.
+-It's okay Dave, I didn't mean to shake the cage like that. Grab a coffee, take
+five minutes to arrive, I'll finish this. It's alright. It's alright.
 
-When his shift was over, Dave went to the cornerstore down the street and bought a pack of cigarettes along with beer in a can. He walked a couple of blocks whit the beer in his hand, then at a cross-street took a left and entered a park. The park was small but had a beautiful light, very warm and forgiving. There was dense foliage and the grass was long, its blade wide and extremely green. In the middle was a little roundabout path circled by lilies, where a small fountain was placed. On each side of the fountain was a stone carved head of native american woman spitting water, as part of the fountain. He felt a sort of shameful wind brush his hansome face and hair, looked away and lit up a cigarette. He looked further, past the fountain, past the lilac trees and cedars. On the other side of the street was a brown brick building of about three stories. One of the window was open and the white curtain that was inside had been sucked out and was now half-out, floating in the warm breeze of the city. He took a long drag of his cigarette, looking at the round and formeless contours of the fabric, like someone's hair out a car window. Sometime he felt like he was so in the moment, so very in the moment, that it was painful, that his brain would not let him stand still in that moment long enough, than time was not suspended, not hanging anywhere, just fleeting and ever out of reach. Like looking at the stars or the points of light, that appears better when you're looking sideway but when you try to really see them, you just can't. You can't win, Dave thought. There is too much of _this_, and not enough of me. He had read an inscription online that proclaimed that the "struggle was real", and he aggreed with that, it was a pretty aggreable statement. Then, he also read that "you were not born to pay bills and die" and he was more ambivalent about this. Wasn't life a giant debt? 
+When his shift was over, Dave went to the cornerstore down the street and bought
+a pack of cigarettes along with beer in a can. He walked a couple of blocks whit
+the beer in his hand, then at a cross-street took a left and entered a park. The
+park was small but had a beautiful light, very warm and forgiving. There was
+dense foliage and the grass was long, its blade wide and extremely green. In the
+middle was a little roundabout path circled by lilies, where a small fountain
+was placed. On each side of the fountain was a stone carved head of native
+american woman spitting water, as part of the fountain. He felt a sort of
+shameful wind brush his hansome face and hair, looked away and lit up a
+cigarette. He looked further, past the fountain, past the lilac trees and
+cedars. On the other side of the street was a brown brick building of about
+three stories. One of the window was open and the white curtain that was inside
+had been sucked out and was now half-out, floating in the warm breeze of the
+city. He took a long drag of his cigarette, looking at the round and formeless
+contours of the fabric, like someone's hair out a car window. Sometime he felt
+like he was so in the moment, so very in the moment, that it was painful, that
+his brain would not let him stand still in that moment long enough, than time
+was not suspended, not hanging anywhere, just fleeting and ever out of reach.
+Like looking at the stars or the points of light, that appears better when
+you're looking sideway but when you try to really see them, you just can't. You
+can't win, Dave thought. There is too much of _this_, and not enough of me. He
+had read an inscription online that proclaimed that the "struggle was real", and
+he aggreed with that, it was a pretty aggreable statement. Then, he also read
+that "you were not born to pay bills and die" and he was more ambivalent about
+this. Wasn't life a giant debt? 
 
-The beer had sank him a bit, and when he had finished it he got up, threw the can in the trashbin beside the bench and started walking south towards his appartment. He looked at people, insistently, hoping to create a connection, a distraction on the sidewalk. A short white man in a blue suit walked towards him, his hand to his temple, talking out loud. There was real emotion there, between this man and his hand; the man was furious. Shouting and walking and moving his free hand like he was conducting. When he passed to his left, his elbow brushed against Dave, and he felt the cheap and textured polyester on the back of his hand. He then look on his right and there was dog shit on the ground, stale and somwhat dry. The tip of a shoe had smeared it into a print on the sidewalk. A handsome man passed him on his right and nearly avoided the shit. That man wore pointy brown leather shoes and had a pleasant cologne, coarsed and smoky. He had short trimmed hair, a fitted white shirt with a low collar and a beautiful dark, even skin. His belt went all the way around and seamed made of alligator leather or some sort of reptile. A bit further was a guy in an apron, round and balding, smoking a cigarette. Dave was walking straight with some sort of resolute gait; he wasn't even out of the block yet. Oh, but then.
+The beer had sank him a bit, and when he had finished it he got up, threw the
+can in the trashbin beside the bench and started walking south towards his
+appartment. He looked at people, insistently, hoping to create a connection, a
+distraction on the sidewalk. A short white man in a blue suit walked towards
+him, his hand to his temple, talking out loud. There was real emotion there,
+between this man and his hand; the man was furious. Shouting and walking and
+moving his free hand like he was conducting. When he passed to his left, his
+elbow brushed against Dave, and he felt the cheap and textured polyester on the
+back of his hand. He then look on his right and there was dog shit on the
+ground, stale and somwhat dry. The tip of a shoe had smeared it into a print on
+the sidewalk. A handsome man passed him on his right and nearly avoided the
+shit. That man wore pointy brown leather shoes and had a pleasant cologne,
+coarsed and smoky. He had short trimmed hair, a fitted white shirt with a low
+collar and a beautiful dark, even skin. His belt went all the way around and
+seamed made of alligator leather or some sort of reptile. A bit further was a
+guy in an apron, round and balding, smoking a cigarette. Dave was walking
+straight with some sort of resolute gait; he wasn't even out of the block yet.
+Oh, but then.
 
 It had never occured to him.
 
-There, about five meters from him, was the love of his life. It stood there, looking at the pavement, blank stated, pensive. It had its right hand in its hair. Like a hundred people he met, a little bit of each, all the best parts of his lovers, their best manners, their best clothes, the smell of their hair. His most beloved memories, all stuffed into this beautiful person on the sidewalk. All his hopes and regrets, now useless in front of something that just took him, overtook him, this love, a love so strong, so assertive, that it just made things disapear or slowdown. This love was not a symbol or a metaphor, it was an actual breathing being, with a childhood and parents, and debts and expired library cards. There was color in those hair and there was a butt and lips, and as far as he could tell everything else one might love. A lifetime of jokes, all more endearing than the last. He walked some more and felt like if he'd been standing up in a shallow river walking upstream, so much was comming out this love. He was fighting for love, trying to get closer. He slowly made it to its level, looking at it all the way,like if his his head was on a gimbal. He was just thinking so hard, that there was zero chance that the love wouldn't e.s.p into it and just realize what was going on. When he got real, real close to it, he could not speak to it, so he kept walking, turning over from time to time, knowing that his love was doing the same only when he was not looking. Love had escaped, again. This made him a bit sad.
+There, about five meters from him, was the love of his life. It stood there,
+looking at the pavement, blank stated, pensive. It had its right hand in its
+hair. Like a hundred people he met, a little bit of each, all the best parts of
+his lovers, their best manners, their best clothes, the smell of their hair. His
+most beloved memories, all stuffed into this beautiful person on the sidewalk.
+All his hopes and regrets, now useless in front of something that just took him,
+overtook him, this love, a love so strong, so assertive, that it just made
+things disapear or slowdown. This love was not a symbol or a metaphor, it was an
+actual breathing being, with a childhood and parents, and debts and expired
+library cards. There was color in those hair and there was a butt and lips, and
+as far as he could tell everything else one might love. A lifetime of jokes, all
+more endearing than the last. He walked some more and felt like if he'd been
+standing up in a shallow river walking upstream, so much was comming out this
+love. He was fighting for love, trying to get closer. He slowly made it to its
+level, looking at it all the way,like if his his head was on a gimbal. He was
+just thinking so hard, that there was zero chance that the love wouldn't e.s.p
+into it and just realize what was going on. When he got real, real close to it,
+he could not speak to it, so he kept walking, turning over from time to time,
+knowing that his love was doing the same only when he was not looking. Love had
+escaped, again. This made him a bit sad.
 
-After unlocking his appartment door, he waited a moment before opening it and listened to the drones, the muffled fridges compressors, the voltage of the neon light in the hallway. He sighed and walked in all at once, closing and locking the door behind him. With his shoes still on, he walked to the kitchen sink and poured himself a glass of water. It was lukewarm and chlorinated. The place looked empty, felt empty: a desk and a chair in the middle of his living room, no plants, beige walls. He walked over to the desk and picked up his laptop, took it to his room then sat on the bed. He looked at his messages but did not have any. He typed the letter "y" in his browser window and the computer knew what he meant already: second choice from the top, his second favorite website in the "y" namespace. On the landing page where a bunch of thumbnails, more or less pixelated. Different women, different guys, different toys and sets. He felt his blood rush downward. He watched a video, one hand on the keyboard. There wasn't really a story, more a mise-en-scene: four girls dressed at nuns, some of them without tops, but all with their coif on. They where in some kind of bathroom, like in a covent, and where forming a half-circle around a fifth girl who was wearing regular dress. One of the nuns was eating the girl's asshole, spitting in it and forcing her fingers in. On the other side of the women, two other nuns where gagging her with a giant rubber cock: you would hear her struggle for air, then they would pull it out and she would gargle and puke a bit while they pulled her hair.
--You sinful whore! You're going to repent! Repent for your sins. Repent before us.
--Hhfhhhhggmmmy, ye, yes sister.
+After unlocking his appartment door, he waited a moment before opening it and
+listened to the drones, the muffled fridges compressors, the voltage of the neon
+light in the hallway. He sighed and walked in all at once, closing and locking
+the door behind him. With his shoes still on, he walked to the kitchen sink and
+poured himself a glass of water. It was lukewarm and chlorinated. The place
+looked empty, felt empty: a desk and a chair in the middle of his living room,
+no plants, beige walls. He walked over to the desk and picked up his laptop,
+took it to his room then sat on the bed. He looked at his messages but did not
+have any. He typed the letter "y" in his browser window and the computer knew
+what he meant already: second choice from the top, his second favorite website
+in the "y" namespace. On the landing page where a bunch of thumbnails, more or
+less pixelated. Different women, different guys, different toys and sets. He
+felt his blood rush downward. He watched a video, one hand on the keyboard.
+There wasn't really a story, more a mise-en-scene: four girls dressed at nuns,
+some of them without tops, but all with their coif on. They where in some kind
+of bathroom, like in a covent, and where forming a half-circle around a fifth
+girl who was wearing regular dress. One of the nuns was eating the girl's
+asshole, spitting in it and forcing her fingers in. On the other side of the
+women, two other nuns where gagging her with a giant rubber cock: you would hear
+her struggle for air, then they would pull it out and she would gargle and puke
+a bit while they pulled her hair.
+-You sinful whore! You're going to repent! Repent for your sins. Repent before
+us.  -Hhfhhhhggmmmy, ye, yes sister.
 -You like that? You filthy whore. You, eat that asshole for your Lord!
 -Yes sister.
 At that point Dave just could not help it and drenched his pants with filth.
 
-Morning. He had to go to work and didn't want to piss of Sarge again this week, so he made a point to leave early. He left without drinking a coffee or eating cereal, he just got up and left and did not think about much. As he made his way through the people, past them, brushing. he looking into their foggy eyes, looked into their mouth as they yawned, looked at their goatees and eyebrow piercing. There was people everywhere he looked. Hidden bruises after hidden bruises, busloads of them; one of them too. He walked through the crowd as if he was in a club, his head slighly above everyone else, forking his hair with his right hand, pulling at it. His long a svelte body cut through the crowd like a katana through a watermelon.
+Morning. He had to go to work and didn't want to piss of Sarge again this week,
+so he made a point to leave early. He left without drinking a coffee or eating
+cereal, he just got up and left and did not think about much. As he made his way
+through the people, past them, brushing. he looking into their foggy eyes,
+looked into their mouth as they yawned, looked at their goatees and eyebrow
+piercing. There was people everywhere he looked. Hidden bruises after hidden
+bruises, busloads of them; one of them too. He walked through the crowd as if he
+was in a club, his head slighly above everyone else, forking his hair with his
+right hand, pulling at it. His long a svelte body cut through the crowd like a
+katana through a watermelon.
 
-As soon as he set foot into the sandwich shop he could here Sarge, who was in a conversation with Martin, one of the guy who didn't care so much about the place. No one but them was in the place. Sarge was mid-way through explaning something:
--"Juices are flowing down here" then, after a short pause, "juices are flowing down here!"
--Yeah well don't go into the details, please. It's not like I haven't been there before... I know what goes on." Martin looked up and met Dave's eyes past the prep counter window. "Well well"
-Then Sarge looked up:
--Dave! "He turned to the clock, then back to Dave" and on point. Early even! Well am I glad to see you. Because this guy, this guy here "he nudged Martin with his elbow" this guy is crazier than a bag of cat! He's getting me all... in-vi-gorated with his stories. Man, what'd I'd give to be your age " he pointed his chin towards Dave" and his looks! Oh boy. Wouldn't I be happy. In retrospect, there is a lot of people I wish I'd had fucked and I wouldn't make the same mistake twice. I would be the happiest owner of a sandwich franchise in this city.
+As soon as he set foot into the sandwich shop he could here Sarge, who was in a
+conversation with Martin, one of the guy who didn't care so much about the
+place. No one but them was in the place. Sarge was mid-way through explaning
+something:
+-"Juices are flowing down here" then, after a short pause, "juices are flowing
+down here!" -Yeah well don't go into the details, please. It's not like I
+haven't been there before... I know what goes on." Martin looked up and met
+Dave's eyes past the prep counter window. "Well well" Then Sarge looked up:
+-Dave! "He turned to the clock, then back to Dave" and on point. Early even!
+Well am I glad to see you. Because this guy, this guy here "he nudged Martin
+with his elbow" this guy is crazier than a bag of cat! He's getting me all...
+in-vi-gorated with his stories. Man, what'd I'd give to be your age " he pointed
+his chin towards Dave" and his looks! Oh boy. Wouldn't I be happy. In
+retrospect, there is a lot of people I wish I'd had fucked and I wouldn't make
+the same mistake twice. I would be the happiest owner of a sandwich franchise in
+this city.
 
-When Dave was back to his place, he really wanted a steak. He got out, got one, cooked it. He sat down by himself at the kitchen table, a brown piece of meat in the middle of his place, nothing else, and he started to cut it up in little rectangles and ate it slowly. The boiled blood was thickening on his plate, making it pinkish. The meat was undercook, almost raw. Into his brains came this idea that everything had change during the brief time he'd been alive, but that the taste of raw meat was had stayed the same. He could say that because a very clear memory came back to him as he was eating, those memories that come with scent and taste, bypass everything else and sublimate into a emotion & warped, fleeting, unintellegible rooms. He remembered eating raw ground beef as a kid, his mom near by. The taste of something else's flesh, body, it's blood that tingled the tongue in almost the same way that his did when he bit his cheeks chewing. It stayed the same, all that time. He looked at his own arm, his own muscles, though of being alive, what it meant to him, what it meant to the cow, what it meant to anything. Maybe things had always been the same in people's mind too? Two thousands years ago in some roman city, people had been eating and shitting and thinking, coming into the world naked, getting out kicking and screaming but getting out. Words had been different, but thoughts? Probably not. There was no way around thinking. Even with the love and the booze and the orgies and, what else could you do to transcent your condition, really, beside fucking and stealing and being good and compasionate and drinking and doing drugs and immolation and tibetan burials where you get eaten by vultures and meditating and writing and learning things and looking, bumping into people trying to find out what they know, if they know something that would just help you out, something that would just assemble this big eternal mess and give peace to everyone. What could you kill or violate, that was not around two thousand years ago? What could you love, that was absent before?
+When Dave was back to his place, he really wanted a steak. He got out, got one,
+cooked it. He sat down by himself at the kitchen table, a brown piece of meat in
+the middle of his plate, nothing else, and he started to cut it up in little
+rectangles and ate it slowly. The boiled blood was thickening on his plate,
+making it pinkish. The meat was undercook, almost raw. Into his brains came this
+idea that everything had changed during the brief time he'd been alive, but that
+the taste of raw meat had stayed the same. He could say that because a very
+clear memory came back to him as he was eating, those memories that come with
+scent and taste, bypass everything else and sublimate into an emotion & warped,
+fleeting, unintellegible rooms. He remembered eating raw ground beef as a kid,
+his mom near by. The taste of something else's flesh, body, it's blood that
+tingled the tongue in almost the same way that his did when he bit his cheeks
+chewing. It stayed the same, all those years, the taste of meat. He looked at
+his own arm, his own muscles, thought of being alive, what it meant to him, what
+it meant to the cow, what it meant to anything. Maybe things had always been the
+same in people's mind too? Two thousands years ago in some roman city, people
+had been eating and shitting and thinking, coming into the world naked, getting
+out kicking and screaming but getting out. Words had been different, but
+thoughts? Probably not. There was no way around thinking. Even with the love and
+the booze and the orgies and, what else could you do to transcent your
+condition, really, beside fucking and stealing and being good and compasionate
+and drinking and doing drugs and immolation and tibetan burials where you get
+eaten by vultures and meditating and writing and learning things and looking,
+bumping into people trying to find out what they know, if they know something
+that would just help you out, something that would just assemble this big
+eternal mess and give peace to everyone. What could you kill or violate, that
+was not around two thousand years ago? What could you love now that never
+existed before?
 
-Since forever, we had been complaning about being alone, wardens of our own reality & unable to truly get to the other, truly understand her, him, them, and how painful it is to be in an eternal desert, to be faced by hell. It is a gift. It is a gift that our empathy doesn't run deep. It is a gift, when you run accross that woman who's you're mom doppledanger and live in the street, he face dirtied and a sad, her apoledgedic look (a look up, since you are walking while she is sitting on the hard cement (she's like any other human too, she has back problems and poor eyesight that is anoying in small and big ways and trouble sleeping and a mother and childhood memories and a first kiss and she get bored and its demeaning, so very demeaning, and she knows that, she is self-aware (we all are, don't foold yourself) but she has to do it because if you're in the desert you drink your own piss and if you're in the andes you eat your friends and if you're in the city, you demean yourself, all of this to survive (do not think that someone's experience of life does not warrant the extremes, just think of your own stakes and see how far you'd go to keep it (i.e. "would you rather die or cut off your tongue"))) and you look sideway, maybe if you'd had seen her from afar you would have taken the other way back to your wellpaying job, and you meet her stare just past the waxed paper that wrap your sandwish that's so full, hot peppers and olives are falling on the sidewalk, but you want to make sure not to in front of her because you're not wasteful and it's already so demeaning for her, you don't want to litterally smear your disposable income on her doorstep. It's hard for you to assume the role of the privileged; all that guilt. It's hard to contemplate. It's a blessing that you don't get to go inside her head because it's even worst living it. This is not just tv, this is real people. Real people suffering. Like you do when people get cancer or when your do die or when you loose your hardrives or whatever. It's a requirement that we be alone, that we put ourselves in front of everything, that we can empathize ever so much; we'd be paralyzed.
+Since forever, we had been complaning about being alone, wardens of our own
+reality & unable to truly get to the other, truly understand her, him, them, and
+how painful it is to be in an eternal desert, to be faced by hell. It is a gift.
+It is a gift that our empathy doesn't run deep. It is a gift, when you run
+accross that woman who's you're mom doppledanger and live in the street, he face
+dirtied and a sad, her apoledgedic look (a look up, since you are walking while
+she is sitting on the hard cement (she's like any other human too, she has back
+problems and poor eyesight that is anoying in small and big ways and trouble
+sleeping and a mother and childhood memories and a first kiss and she get bored
+and its demeaning, so very demeaning, and she knows that, she is self-aware (we
+all are, don't fool yourself out of this guilt) but she has to do it because if
+you're in the desert you drink your own piss and if you're in the andes you eat
+your friends and if you're in the city, you demean yourself, all of this to
+survive (do not think that someone's experience of life does not warrant the
+extremes, just think of your own stakes and see how far you'd go to keep it
+(i.e. "would you rather die or cut off your tongue"))) and you look sideway,
+maybe if you'd had seen her from afar you would have taken the other way back to
+your wellpaying job, and you meet her stare just past the waxed paper that wrap
+your sandwish that's so full, hot peppers and olives are falling on the
+sidewalk, but you want to make sure not to in front of her because you're not
+wasteful and it's already so demeaning for her, you don't want to litterally
+smear your disposable income on her doorstep. It's hard for you to assume the
+role of the privileged; all that guilt. Life's hard; poor you. It's hard to
+contemplate. It's a blessing that you don't get to go inside her head because
+it's even worst living it. This is not just tv, this is real people. Real people
+suffering. Like you do when people get cancer or when your do die or when you
+loose your hardrives or whatever. It's a requirement that we be alone, that we
+put ourselves in front of everything, that we can empathize ever so much; we'd
+be paralyzed.
 
-#####
-He got out of the metro when it occured to him; he had thought before that it had never occured to him, but now it was real: there was the love of his live in the crowd.
+##### He got out of the metro when it occured to him; he had thought before that
+it had never occured to him, but now it was real: there was the love of his live
+in the crowd.
+

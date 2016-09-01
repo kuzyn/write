@@ -1,10 +1,10 @@
-"hello"
-shake hands firmly a good handshake
+hello
+shake hands firmly --a good handshake
 thick voice
 "I'm Jim Daily."
-"hi im sam"
+hi im sam
 
-(at this moment JD realised that I didn't matter in the grand scheme of things)
+at this moment jim daily realised that I didn't matter in the grand scheme of things
 
 and it turns out that the sinkhole that swallowed a man
 who was never found
