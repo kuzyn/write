@@ -2,7 +2,7 @@ stopgap = a quick & temporary way to deal with a problem or a situation
 
 the cover is a burn bag pattern
 
-25 pages / 5000 words
+~5000 words
 
 a story about: selfishness/selfconsumption, scope & closure, virtuality, looking
 for then overlooking help, indulgence in all its forms.
@@ -266,7 +266,142 @@ loose your hardrives or whatever. It's a requirement that we be alone, that we
 put ourselves in front of everything, that we can empathize ever so much; we'd
 be paralyzed.
 
-##### He got out of the metro when it occured to him; he had thought before that
+~~~ Part 2 ~~~
+
+He got out of the metro when it occured to him; he had thought before that
 it had never occured to him, but now it was real: there was the love of his live
-in the crowd.
+in the crowd. He looked around but coulnd't spot it just yet. He walked out of
+the station, bouncing off people, following the walls and their grime, like a 
+dishmop being worked toward the drain, some light, up the stairs and out
+in the street. There was so many people that that he barely looked at them, they
+became a part of the urbanity, moving textures, big cotton bags filled with water
+and useful fats. He could not remember his zip code; for him the faces
+(including his own) were blotches and targets. He felt not really a movement
+from all the movement, but more of a squeeze. 
+
+On the street there he glanced around, unsure of what to look for but something
+caught his attention all the way through the nose, and he started trailling it. He was following the trace of a
+cheap acrid cigar, like a fish on a line, hooked through the guts, pulled
+foward with an insistance that tugged his fins-no-more limbs forth and
+forward and forward. Walking up-straight, on firm ground. He might get the hang 
+of it, at some point, after billions of quarters in the evolution machine.
+
+At the second corner he finally caught up with the cigar smoker, a man with
+loose pants and a c.b. radio attached to his right hip. The cigar was now just a
+stub and must have been terrible to smoke, he thought. The corner was packed
+with people waiting to cross.  They were all waiting for
+the light to turn, remarkable up-straight walking, self-sufficient just need a
+little water, hard ('someone's gotta do it') workers. Well, he was not working
+but then, even when you don't you kinda do. As he was walking to the other side,
+he saw her, she saw him. Their respective faces sort of got aligned and then
+moved along an axis that had nothing to do with where their body was going.
+Picture howls in pants walking past each other while playing blind man's bluff.
+
+She felt her heart get bigger and porous as they walked towards each other.
+Nicole was going to catch the metro and go meet a friend downtown. But now she
+could not think of anything else but this guy. She did not know if people said
+things like that, but he looked like the 'biggest fucking dope' she ever saw. She
+did not know either if the meaning had stabilized more towards the positive or
+the negative when it came to 'dope', so she was confused as to if she liked it
+or not. Or rather, she had trouble explaning it to herself via the whole bicameralism 
+thing in her brain, with one part doing the talking and one doing the thinking.
+But luckily, nothing is faster than thoughts, so she still has so much time to
+find out if she thought the guy was dope, or a dope. She used that time to envy
+a woman's trenchcoat, curse the inneficient treatement of garbage in this city
+and blink her eyes twice. Then she looked him up and down, kinda felt his gait
+and presence whatever, then she inner-exclaimed "fkg dopeee!", but this time she meant
+it.
+
+A few minute later at the bodega. Dave was chirping a Pulp tune.
+-"Ohhh. Pretend that you have no money..."
+-Well it won't be too hard...
+-"Rent a flag about a shop, smoke some facts and play some pool..." He seemed
+lost for a moment, looked at her, she was holding two cans of condensed milk of
+different brand, looking at their labels intensly.
+-Why did we come here? She said turning around
+-I wanted to pick up some beers." He tilted his head dopeshly on to his right 
+"I thought we could go the the park or something?
+She nodded and put the cans of condensed milk in the shelves in front of her,
+among creamy and crunchy peanut butter, and followed Dave to the beer section.
+There she nodded approbingly at a six pack of Modelo, moved from the cashier to
+the door to a close-by park with her new dope friend by her side.
+
+While they were walking and talking about what is it that they do what is it
+that they like, she was surprised at how confortable she felt. She did not even
+know this boy's name yet, but there was this common ground that already existed,
+not in what they did and what they liked (they had nothing in common) but in the
+the surprise of chance meetings, in the truly unexpected bumps in bland
+regimented life that allow two people to be generous and vulnerable, sometimes.
+-... so I just kept looking at the floor for a while thinking about all of the
+shit in the carpet and the dots how much *stuff* there is around, you know?"
+By now there were sitting in the grass, asses in a sure antnest, shades, two
+beers open. He took a gulp of his beer, while the beer was still in the air
+Nicole said -"You look like
+-What, what do I look like? Who do I look like?
+-"Oh nevermind.
+-"No no no" he said putting his empty beer in the grass, destroying the hundred
+of ant-hour work. "Come on you had something in mind
+-"it was just a fleeting thought" she paused for a second "nothing important
+His voice got a bit louder. -"Come on! Tell me. Tell me what what am I
+-"Nothing, forget I even mentioned anything." she said with a trailing smile.
+Dave stared at her blankly, then straight forward in silence. Man-seconds of
+akwardness.
+-"Oh. Come on." There was some jest in her voice. "You're being antisocial"
+He turned around without a word, kinda looked at her sternly, and lit up a
+cigarette.
+-"Now you're just being an asshole"
+That must have registered in some weird brain portal because Dave's whole body
+stiffened. He seemed to be thinking of something far and shapeless, then turned
+his body a bit away from her. After taking a drag from he cigarette, he looked
+at her in an amiable way again.
+-Anyway, tell me about what is your life about? Like, what do you do on a monday
+night?
+She smiled, happy that the common ground hadn't been all gnawned by the beer and
+the ants.
+-Well! I kind of just stay home most time, and either work on that zine that I
+told you about, or finish whatever I haven't finished for my tuesday class.
+-What class is it? Dave asked
+-It's like a class about urbanity and how it affects community building and
+accessibility to, not like ressources but points of interests
+-"Like doctors and stuff?
+-"Well yeah, that too, but more in line with community spaces, "she pointed
+around with her beer" and parks! Parks are a common good, and the fact that they
+can be used for free, unregulated is very important in any city
+-Oh, yeah!"He brightened up a bit with excitement. "I love parks. Once I slept
+on a park bench. I was young and I had been with some friend, but then I
+couldn't get home afterward... so I slept in a park.
+-"Why didn't you ask you friend to sleep over?
+-I dunno, I felt shy about it. Like they knew that there was no way for me to
+go back home, and they didn't offer. I figured it's because they didn't want me
+to sleep over.
+-You just didn't ask any of your friends out of embarassement?
+He shrugged. "I dunno. If they had been friend they would have offered it
+upstraight... Then I went knocking to my crush's window since she lived in the
+area. But she wasn't there.
+-I see. Well maybe you were just looking for an excuse to force yourself to go
+and try to sleep there!" she said
+-Yeah, I didn't think of that... maybe? Maybe that's a bad subject." He
+half-smiled "let's go go buy cigarettes, I ran out"
+-"Aw come on, you're spoiling it!
+
+Dave got up, turned to her, looked her straight in the eyes and said -"Okay. I don't have to
+deal with this shit. I'm done. Ciao" he then brushed up grass and dirt and ants
+off his ass and walked away from Nicole, who's mouth was still half-open, and
+who's eyes were kinda shifting around to spot some kind of meaning as to what
+exactly had just happened before her eyes. What exactly had just happened anyway?
+
+~~~ Epilogue ~~~
+
+Dave went around the block, bought a pack og cigarette and walk 8 blocks
+lighting up cigarette with cigarette butts. He felt a bit nauseous and sad. Had
+he been innapropriate in how he dealt with the situation? He did not know. He
+did not have a clue. He felt sad that love had fizzled out again, but he was not
+sad. And although he didn't feel grounded to anything, he felt relieved and hopeful.
+
+There was hope in his pace. He flicked his cigarette in the street with flair
+and got into a metro station. Going down the stairs he froze for a second and
+let out a barely vocalized wimper at what he saw. There she was. The love of his
+life, the woman that he had been waiting for.
+
+the end
 
