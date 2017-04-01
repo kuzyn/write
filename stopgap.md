@@ -4,38 +4,35 @@ the cover is a burn bag pattern
 
 ~5000 words
 
-a story about: selfishness/selfconsumption, scope & closure, virtuality, looking
-for then overlooking help, indulgence in all its forms.
+a story about: selfishness/selfconsumption
 
-When he woke up there was a hole in his head where there used to be dreams and
-sleep. He turned around. He squinted down, head hanging past the mattress,
+When he woke up there was a hole in his head instead of the dreams and the
+sleep. He turned around and squinted down, head hanging past the mattress,
 stomach flat, looking at the grey carpet under him, under his bed. He saw little
 dots of color, crumbs and hairs. The dots reminded him of when he was younger
-and he'd close his eyes trying to get to sleep but kinda teasing himself not to
-at the same time, and in the inside of his lids he'd see millions of tiny dots
-red and blue flashing and they'd be like, when you're looking at the sky and
-it's the milky way and you see that something is there, but you can't really
-stop your eyes on the individual stars because there are so many of them all
-being milky. But as soon as you move your big bulky beautiful head, there they
-are, billions and billions and billions.
+and he would close his eyes trying to go to sleep but kinda teasing himself not to
+at the same time, and in the inside of his eyelids he'd see millions of tiny red and blue dots
+flashing, like when you're looking at the sky and
+it's the milky way and something is there, but you can't really
+stop your eyes on the individual stars because there are so many of them they just form a sort of pale volume. But as soon as you move your big bulky beautiful head, there they
+are, billions and billions and billions dots.
 
-There was some drooling, or damp breathing, on his cotton sheets. He just looked
-at the floor for one more moment, the fact that he was abled body and concious
-was welcomed. In a couple of decades, sleep had evolved from something that he
+There was some drooling or damp breathing on his cotton sheets. He still was just looking
+at the floor. His was tired already and the only awake things so far was
+his sense of dread and his eyesight. The fact that he was abled body and concious
+was welcomed. Within about two decades, sleep had evolved from something that he
 did for fun and without effort, to this scary pilgrimage into his own selfness
-and looking for things that maybe were there but most probably weren't or if
-they were, they were the bitteres fruits of his victory garden of the soul and
-mind and heart. His was tired already and the only awake thing so far was
-apparently his sense of dread and his eyesight. He sighted and turned his big
-beautiful head around, a big ol'180 degrees back, looking at the ceiling. He
-felt like thinking about the ceiling and seeing where that'd go, but stopped
-himself, since he'd already bored himself once today by looking at the floor.
-His life was a succession of looking at more or less flat surfaces and depending
+and looking for things that maybe were there but most probably weren't, or if
+they were, they were scary things in his soul and
+mind and heart.  He sighted and turned his big
+beautiful head around, a big 180 degrees back, looking at the ceiling now. He
+felt like thinking about the ceiling and seeing where that would go, but stopped
+himself. His life was a succession of looking at more or less flat surfaces and depending
 of how close or how far they were, boring himself to death with either
 intrinsinct or gigantic details. Oh look, a wall. Oh, a painting. Oh, look the
 clouds, makes me think of when I was 6, blah, blah. Oh a screen. Oh, someone
-face. Fuck this he muttered, and did a 180 back, powf, back to looking the
-floor. He fell asleep right away.
+face. He sighted again and did a 180 back, powf, back to looking the
+floor. He fell back asleep right away.
 
 Since he ran a bit late, he held his shit in from his apartement to his work,
 waiting to be done with his commute to be his most vulnerable. In spite of this,
@@ -108,7 +105,7 @@ can't win, Dave thought. There is too much of _this_, and not enough of me. He
 had read an inscription online that proclaimed that the "struggle was real", and
 he aggreed with that, it was a pretty aggreable statement. Then, he also read
 that "you were not born to pay bills and die" and he was more ambivalent about
-this. Wasn't life a giant debt? 
+this. Wasn't life a giant debt?
 
 The beer had sank him a bit, and when he had finished it he got up, threw the
 can in the trashbin beside the bench and started walking south towards his
@@ -271,19 +268,19 @@ be paralyzed.
 He got out of the metro when it occured to him; he had thought before that
 it had never occured to him, but now it was real: there was the love of his live
 in the crowd. He looked around but coulnd't spot it just yet. He walked out of
-the station, bouncing off people, following the walls and their grime, like a 
+the station, bouncing off people, following the walls and their grime, like a
 dishmop being worked toward the drain, some light, up the stairs and out
 in the street. There was so many people that that he barely looked at them, they
 became a part of the urbanity, moving textures, big cotton bags filled with water
 and useful fats. He could not remember his zip code; for him the faces
 (including his own) were blotches and targets. He felt not really a movement
-from all the movement, but more of a squeeze. 
+from all the movement, but more of a squeeze.
 
 On the street there he glanced around, unsure of what to look for but something
 caught his attention all the way through the nose, and he started trailling it. He was following the trace of a
 cheap acrid cigar, like a fish on a line, hooked through the guts, pulled
 foward with an insistance that tugged his fins-no-more limbs forth and
-forward and forward. Walking up-straight, on firm ground. He might get the hang 
+forward and forward. Walking up-straight, on firm ground. He might get the hang
 of it, at some point, after billions of quarters in the evolution machine.
 
 At the second corner he finally caught up with the cigar smoker, a man with
@@ -303,7 +300,7 @@ could not think of anything else but this guy. She did not know if people said
 things like that, but he looked like the 'biggest fucking dope' she ever saw. She
 did not know either if the meaning had stabilized more towards the positive or
 the negative when it came to 'dope', so she was confused as to if she liked it
-or not. Or rather, she had trouble explaning it to herself via the whole bicameralism 
+or not. Or rather, she had trouble explaning it to herself via the whole bicameralism
 thing in her brain, with one part doing the talking and one doing the thinking.
 But luckily, nothing is faster than thoughts, so she still has so much time to
 find out if she thought the guy was dope, or a dope. She used that time to envy
@@ -319,7 +316,7 @@ A few minute later at the bodega. Dave was chirping a Pulp tune.
 lost for a moment, looked at her, she was holding two cans of condensed milk of
 different brand, looking at their labels intensly.
 -Why did we come here? She said turning around
--I wanted to pick up some beers." He tilted his head dopeshly on to his right 
+-I wanted to pick up some beers." He tilted his head dopeshly on to his right
 "I thought we could go the the park or something?
 She nodded and put the cans of condensed milk in the shelves in front of her,
 among creamy and crunchy peanut butter, and followed Dave to the beer section.
@@ -404,4 +401,3 @@ let out a barely vocalized wimper at what he saw. There she was. The love of his
 life, the woman that he had been waiting for.
 
 the end
-
