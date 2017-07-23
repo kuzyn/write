@@ -1,0 +1,64 @@
+Het Nieuwe Instituut Fellowship proposal
+
+Samuel Cousin
+
+Occultism in digital culture
+
+Arguably, the idea of the occult appeared somewhat in parallel to the notion of science.
+Afterall, both offer an understanding of the world through a lense. 
+
+They are linked not as much by their domain than by their causality: hard sciences
+blew over the fog of mysticism, maybe even the sense of wonder, that came with a more
+aproximative understanding of the world. Classical occultism
+had as much to do with metaphysics as it did with the "hidden world": it is a 
+creative interpretation of things that ellude momentary interpretation. The symptom
+of a force that is witnessed, but not yet explained. The exponential growth and ubiquity of
+computational devices allowed a similar understanding of the virtual world to appear: 
+etheral, omnipresent, equally charged with infinite potential for fortune and retribution. 
+
+We are in a transitory period with regard to new media & digital culture. In front of a massive, 
+monolitic "cloud", our understanding falthers but our lives become condusive to
+what can aptly be described has "the weirdness". The same weirdness that astrophysists
+refer to when the talk about event horizons. This manifest itself in many different forms:
+an image board effectively coordinating an artillery strike in Syria(1); a single company's
+algorithm controlling 6 trillions dollars in assets(2); a 20-something serving a life sentence
+without parole for creating an online marketplace(3). These are only figments of a broader 
+narrative that I want to investigate with the assistance of the HN institute.
+
+~~~~~~~~~~~~~~~~~~~~~~
+Information has always been gold. From scribe priests to HFT (4), access to information often
+dictated who would profit the most. Through millions of miles of fiberoptic, starting with the
+TDA-8 in XX, the
+~~~~~~~~~~~~~~~~~~~~~~
+
+The tentative structure of my project contains two parts and an epilogue. I am still
+uncertain as to what form this research will take, but it will most likely be a combination
+of images (still & moving), code and writing. The first part will investigate the 
+topology of fiber optics and their role in access to information. I will deepen my study of 
+benjamin bratton's work, and Kevin Slavin, notably their interpretation of 
+'algorithmic terraforming' -- the virtual world modifying the actual substract
+it stands on. Tentatively, I wish to include my friend Ksenia Yurkova's current research at
+Helsinki University, and study how her photographic work visually explore
+such questions as to manufactured landscape. Out of this initial reasearch, I will be able to create strong theorical
+background to build the second part of my research around. I expect to formalize this first
+part through code (e.g. a script or program that can be freely used and modified).
+
+The second part of my reasearch will address the collaborative nature of the current
+digital culture. I will focus on two main subjects during this part: 
+- The advent of git, the open source version control software that has become ubiquitous with open source software
+- The indictement and emprisonement of 'Dread Pirate Robert' (FIST LAST), alledged mastermind behind Silk Road
+
+Responding to these two threads, I will introduce  Ben LAST ongoing project of unMonastery, 
+along with Mencius Moldbug (Curtis Yarvin) initiative of Urbit.
+unMonastery is a network of decentralized workspace & research project that revolve around
+unflinching (and almost anarchistic) transparency; Urbit is a free and open source platform 
+that aims to completely decentralize client/server interactions. Both are within reach
+from a common friend. If the scopes permit it, I also want to study how similar
+#behaviors# have influenced the queer community in its organization (e.g. fanzines, public gatherings,
+survey data). While this might seems like a broad & diffused #enterprise#, the goal here is merely
+to assemble real-world example of collaborative behaviors, and how they can have real
+tangible impact: these threads should be seen as available facets to explore rather than
+checkboxes that need to be filled. I expect this part to consist mostly of interviews and
+pictures.
+
+
