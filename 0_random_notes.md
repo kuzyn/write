@@ -1,3 +1,35 @@
+today i saw a guy at a barber, his face in a green mask
+then a guy at the fruit store
+his face gnawed by a wine stain
+
+i talke to my mother for an hour
+and now i am listening
+to the soundtrack of super mario bros two
+
+±±±
+
+i keep putting the tile back
+the floor has hundred of these small round blue tiles
+and one is missing
+always was missing
+then another one came loose since then
+and i keep putting it back
+the whole floor is royal blue
+glissening
+and i put it back
+and there is one missing
+
+±±±
+
+walking behind a girl after a nice wistful evening of meat and wine and you think that "she will be something" in the narrative but actually she simply walks in front of you forever and you never see here face. she stops at a glass window, check her lipstick. leather boots. keeps walking and you never, ever see her face or know more about her
+
+then you remember the beautiful story of the yogurt and fruits, being compulsively eaten, this "mom" feeling of wholesomeness and how it reassures and pumps dread into your balloon heart. yogurt. curded mother's milk. a very nice still life. a very nice picture of suffering, that looks like a picture of wholesome breakfast
+
+±±±
+
+i am the assless ghost
+
+±±±
 
 long sleeve, balding. hard square jaw
 
