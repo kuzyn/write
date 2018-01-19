@@ -1,3 +1,7 @@
+videos of small airplanes tailspining and recovering
+
+±±±
+
 today i saw a guy at a barber, his face in a green mask
 then a guy at the fruit store
 his face gnawed by a wine stain
