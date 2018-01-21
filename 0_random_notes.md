@@ -1,3 +1,7 @@
+to shake like a shitting dog
+
+±±±
+
 videos of small airplanes tailspining and recovering
 
 ±±±
