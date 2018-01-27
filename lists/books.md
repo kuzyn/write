@@ -46,6 +46,7 @@
  Maggie Nelson - Bleuets
  Nassim Nicholas Taleb - Skin in the Game
  Oliver Sacks - On the Move: A life
+ Ralph Elison - The Invisible Man
  Raymond Carver - What we talk about when we talk about love
  Robert A. Heinlein - Stranger in a Strange Land
  Robert D. Putnam - Bowling Alone

@@ -1,4 +1,8 @@
-to shake like a shitting dog
+"i'm like, super fucking mature for my age, like"
+
+±±±
+
+to shake like a shitting dog on a frozen pond
 
 ±±±
 
