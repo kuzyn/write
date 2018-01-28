@@ -28,6 +28,7 @@
  Howard Zinn - A People's History of the United States
  Ingrid Burrington - Network of New York
  Jacob Wren - Rich and Poor
+ James Baldwin - Notes from a Native Son
  Jan Westerhoff - Reality: A Very Short Introduction
  Jane Mayer - Dark Money
  John Cassavetes - Cassavetes on Cassavetes
