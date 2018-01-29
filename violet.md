@@ -1,0 +1,5 @@
+A story about people that are complex, that are real people. Something about multiplicity.
+
+First scene. There is a traveling towards a plane, twd the wing of a plane. There is this light and there is this sound, like a cellphone trap song playing, and the light is a very artificial light and directed. It's basking in pink, mercury light, but the point light is artificial. We follow the body of a plane, the shape. Then, after a while, a jet comes out and it's defrosting liquid; the camera is the camera at the tip of a de-icying boom, at the airport. There is the outline of planes on the ground. There is night. There is snow and wind
+
+Second scene. From the inside of the plane, we see flashing spots. Black and then bright. Blanck, then bright. We feel movement, lots of speed. Every second, an illumination. We understand that it's the lights at the tip of the airplane's wing: they illuminate the crystal, the snow in the snow storm. We were looking at the back, now we see the front as well. The lights are slightly offset in their blinking.
