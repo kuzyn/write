@@ -1,9 +1,11 @@
 Alice Clark - Alice Clark
 Electric Light Orchestra - Out of the blue
 Frank Sinatra - In the Wee Small Hours
-George Jones - The Race is On
-JAMES bLood Ulmer - Birthright
+Frank Sinatra - Trilogy
+George Jones - I Get Lonely in a Hurry
+James Blood Ulmer - Birthright
 James Blood Ulmer - James Blood's Music Revelation Ensemble
+John Prine - Great Days
 Johnny Guitar Watson - A Real Mother For Ya
 Johnny Guitar Watson - Ain't That a Bitch
 Les Paul & Chet Atkin - Guitar Monsters
