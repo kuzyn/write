@@ -10,5 +10,6 @@ Les Paul & Chet Atkin - Guitar Monsters
 Les Paul - The New Sound
 Roy Buchanan - Roy Buchanan
 Roy Buchanan - When a Guitar Plays the Blues
+Sparks - Kimono My House
 Tatsuro Yamashita - SPACY
 Waylon Jennings - Good Hearted Woman
