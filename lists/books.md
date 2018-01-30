@@ -2,6 +2,7 @@
  Adam Wilson - Flatscreen: A Novel
  Alain Damasio - La Zone Du Dehors
  Alexei Yurchak - Everything was forever, until it was no more
+ Alice Munro - Hateship, Friendship, Courtship, Loveship, Marriage
  Amarillo Slim Preston - Amarillo Slim in a World Full of Fat People
  Anais Nin - A Literate Passion: Letters of Anais Nin & Henry Miller
  Andrew Carnegie - The Gospel of Wealth
@@ -14,6 +15,7 @@
  Chris Salter - Alien Agency
  Cixin Liu - The three body problem
  Colson Whitehead - The Underground Railroad
+ Cormac McCarthy - The Road
  Dave Hill - Tasteful Nudes
  David Berman - Actual Air
  David Carr - The Night of the Gun
@@ -42,6 +44,8 @@
  Kurt Vonnegut - Slaughterhouse-Five
  Kurt Vonnegut Jr. - Welcome To The Monkey House
  Laszlo Krasznahorkai - Satantango
+ Leo Tolstoy - The Death of Ivan Ilych
+ Leo Tolstoy - War and Peace
  Lev Manovich - The Language of New Media
  M. Mitchell Waldrop - The Dream Machine
  Maggie Nelson - Bleuets
@@ -56,6 +60,8 @@
  Sylvia Plath - The Bell Jar
  Tariq Nasheed - The Mack Within
  Thomas Bernhard - The Loser
+ Thomas Pynchon - Bleeding Edge
+ Thomas Pynchon - Gravity's Rainbow
  Truman Capote - In Cold Blood
  Victor Pelevin - Clay Machine-Gun
  W.G. Sebald - The Rings of Saturn

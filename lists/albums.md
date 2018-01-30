@@ -1,6 +1,7 @@
 Alice Clark - Alice Clark
 Electric Light Orchestra - Out of the blue
 Frank Sinatra - In the Wee Small Hours
+George Jones - The Race is On
 JAMES bLood Ulmer - Birthright
 James Blood Ulmer - James Blood's Music Revelation Ensemble
 Johnny Guitar Watson - A Real Mother For Ya
@@ -10,3 +11,4 @@ Les Paul - The New Sound
 Roy Buchanan - Roy Buchanan
 Roy Buchanan - When a Guitar Plays the Blues
 Tatsuro Yamashita - SPACY
+Waylon Jennings - Good Hearted Woman
