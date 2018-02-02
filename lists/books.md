@@ -9,6 +9,7 @@
  Angela Nagle - Kill All Normies
  Arthur Shopenhauer - The World as Will and Representation
  Artur Koestler - The Ghost in the Machine
+ Ben Lerner - 10 04
  Benjamin H. Bratton - The Stack
  Bill Callahan - Letters to Emma Bowlcut
  Bruce Sterling - Involution Ocean
