@@ -11,6 +11,7 @@ Johnny Guitar Watson - A Real Mother For Ya
 Johnny Guitar Watson - Ain't That a Bitch
 Les Paul & Chet Atkin - Guitar Monsters
 Les Paul - The New Sound
+Parlour - Parlour
 Roy Buchanan - Roy Buchanan
 Roy Buchanan - When a Guitar Plays the Blues
 Sparks - Kimono My House
