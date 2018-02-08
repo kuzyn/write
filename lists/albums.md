@@ -5,6 +5,7 @@ Frank Sinatra - Trilogy
 George Jones - I Get Lonely in a Hurry
 James Blood Ulmer - Birthright
 James Blood Ulmer - James Blood's Music Revelation Ensemble
+James Brown - Black Caesar
 John Prine - Great Days
 Johnny Guitar Watson - A Real Mother For Ya
 Johnny Guitar Watson - Ain't That a Bitch
