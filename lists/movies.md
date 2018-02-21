@@ -1,5 +1,12 @@
 New York, New York (1977)
 Seven Chances (1927)
+Short Cuts (1993)
+The Love Witch (2016)
 The World's Greatest Sinner (1962)
 Violent Cop (1989)
 Witchfinder General (1968)
+~
+~A Fantastic Woman (2017)
+~Gun Crazy (1950)
+~The Phantom Thread (2017)
+~The Square (2017)

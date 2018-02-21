@@ -14,6 +14,7 @@ Les Paul - The New Sound
 Parlour - Parlour
 Roy Buchanan - Roy Buchanan
 Roy Buchanan - When a Guitar Plays the Blues
+Sister Rosetta Tharpe - Live in Paris
 Sparks - Kimono My House
 Tatsuro Yamashita - SPACY
 Waylon Jennings - Good Hearted Woman

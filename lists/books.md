@@ -71,3 +71,8 @@
  Yuval Hoah Harari - Sapiens
  Yuval Noah Harari - Homo Deus
  Zadie Smith - Swing Time
+ ~
+ ~Cormac McCarthy - Blood Meridian
+ ~Eula Biss - Notes from No Man's Land
+ ~Mary Shelley - Frankenstein
+ ~Steffanie Ling - Nascar
