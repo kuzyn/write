@@ -30,6 +30,7 @@
  Henry Miller - Tropic of Capricorn
  Howard Zinn - A People's History of the United States
  Ingrid Burrington - Network of New York
+ J.W. Dunne - An Experiment with Time
  Jack London - The People of the Abyss
  Jacob Wren - Rich and Poor
  James Baldwin - Notes from a Native Son
@@ -61,11 +62,13 @@
  Stanley Cohen - Folk Devils and Moral Panics
  Sylvia Plath - The Bell Jar
  Tariq Nasheed - The Mack Within
+ Teju Cole - Known and Strange Things
  Thomas Bernhard - The Loser
  Thomas Pynchon - Bleeding Edge
  Thomas Pynchon - Gravity's Rainbow
  Truman Capote - In Cold Blood
  Victor Pelevin - Clay Machine-Gun
+ Vladimir Nabokov - Speak, Memory
  W.G. Sebald - The Rings of Saturn
  W.G. Sebald - Vertigo
  Yuval Hoah Harari - Sapiens
@@ -74,5 +77,6 @@
  ~
  ~Cormac McCarthy - Blood Meridian
  ~Eula Biss - Notes from No Man's Land
+ ~Joan Didion - South and West
  ~Mary Shelley - Frankenstein
  ~Steffanie Ling - Nascar

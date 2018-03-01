@@ -6,9 +6,13 @@ George Jones - I Get Lonely in a Hurry
 James Blood Ulmer - Birthright
 James Blood Ulmer - James Blood's Music Revelation Ensemble
 James Brown - Black Caesar
+Janelle Monáe - Dirty Computer
+Jim O'Rourke - Bad Timing
+Jim O'Rourke - Insignificance
 John Prine - Great Days
 Johnny Guitar Watson - A Real Mother For Ya
 Johnny Guitar Watson - Ain't That a Bitch
+Jóhann Jóhannsson - IBM 1401, A User's Manual
 Les Paul & Chet Atkin - Guitar Monsters
 Les Paul - The New Sound
 Parlour - Parlour

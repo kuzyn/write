@@ -1,3 +1,7 @@
+"i can show you the door, but it's up to you to turn the doorknob" (when talking about a boy)
+
++++
+
 "i'm like, super fucking mature for my age, like"
 
 ±±±
