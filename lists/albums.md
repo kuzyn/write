@@ -1,5 +1,10 @@
+?Moon Gangs - Earth Loop
+?Mount Eerie - Now Only
+?Soft As Snow Deep Wave
+?Unknown Mortal Orchestra - Sex and Food
 Alice Clark - Alice Clark
 Electric Light Orchestra - Out of the blue
+Essaie Pas - New Path
 Frank Sinatra - In the Wee Small Hours
 Frank Sinatra - Trilogy
 George Jones - I Get Lonely in a Hurry

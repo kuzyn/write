@@ -40,6 +40,7 @@
  John Emil Vincent - Excitement Tax
  John Green - Will Grayson, Will Grayson
  John Lewis - Walking with the Wind
+ John McPhee - Levels of the Game
  Joseph Campbell - The Hero with a Thousand Faces
  Julian Jaynes - The origin of conciousness ...
  Julio Cortazar - Hopscotch
@@ -80,3 +81,4 @@
  ~Joan Didion - South and West
  ~Mary Shelley - Frankenstein
  ~Steffanie Ling - Nascar
+Ryan Holiday - Conspiracy: Peter Thiel, Hulk Hogan, Gawker, and the Anatomy of Intrigue
