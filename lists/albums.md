@@ -3,6 +3,7 @@
 ?Soft As Snow Deep Wave
 ?Unknown Mortal Orchestra - Sex and Food
 Alice Clark - Alice Clark
+Doug Hream Blunt - My Name is Doug Hream Blunt
 Electric Light Orchestra - Out of the blue
 Essaie Pas - New Path
 Frank Sinatra - In the Wee Small Hours
@@ -17,6 +18,7 @@ Jim O'Rourke - Insignificance
 John Prine - Great Days
 Johnny Guitar Watson - A Real Mother For Ya
 Johnny Guitar Watson - Ain't That a Bitch
+Junior Brown - Semi Crazy
 Jóhann Jóhannsson - IBM 1401, A User's Manual
 Les Paul & Chet Atkin - Guitar Monsters
 Les Paul - The New Sound
@@ -26,4 +28,5 @@ Roy Buchanan - When a Guitar Plays the Blues
 Sister Rosetta Tharpe - Live in Paris
 Sparks - Kimono My House
 Tatsuro Yamashita - SPACY
+Velly Joonas - Stopp, Seisky Aeg!
 Waylon Jennings - Good Hearted Woman

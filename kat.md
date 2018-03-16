@@ -5,3 +5,5 @@
 5. q: how many eggs could you eat in an hour? a: many but I wouldn't feel good
 6. my paint prison
 7. while listening to silver mt zion: prison music
+8. my father has gone bankrupt building two windmills in tcekoslovakia
+9. when looking at pictures of anna karina before/now "wow it's like when they suddently show you the face of the guy in a porn movie"
