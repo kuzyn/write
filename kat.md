@@ -7,3 +7,4 @@
 7. while listening to silver mt zion: prison music
 8. my father has gone bankrupt building two windmills in tcekoslovakia
 9. when looking at pictures of anna karina before/now "wow it's like when they suddently show you the face of the guy in a porn movie"
+10. talking about me going to bed: are you giving up already

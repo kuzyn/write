@@ -23,6 +23,7 @@
  E-Flux Journal - May 31, 2016
  Edward Said - Orientalism
  Franco Bifo Berardi - After the Future
+ Franz Kafka - Amerika
  Giorgio Agamben - The Open: Man and Animal
  Giuseppe Longo - Perspectives on Organisms
  Hannah Arendt - The Life of the Mind
@@ -67,9 +68,11 @@
  Thomas Bernhard - The Loser
  Thomas Pynchon - Bleeding Edge
  Thomas Pynchon - Gravity's Rainbow
+ Tracy K. Smith - Wade in the Water
  Truman Capote - In Cold Blood
  Victor Pelevin - Clay Machine-Gun
  Vladimir Nabokov - Speak, Memory
+ W.G. Sebald - Austerlitz
  W.G. Sebald - The Rings of Saturn
  W.G. Sebald - Vertigo
  Yuval Hoah Harari - Sapiens

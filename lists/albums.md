@@ -15,6 +15,7 @@ James Brown - Black Caesar
 Janelle Monáe - Dirty Computer
 Jim O'Rourke - Bad Timing
 Jim O'Rourke - Insignificance
+Joe Hasaishi - Kiki's Delivery Service
 John Prine - Great Days
 Johnny Guitar Watson - A Real Mother For Ya
 Johnny Guitar Watson - Ain't That a Bitch
