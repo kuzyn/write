@@ -1,9 +1,13 @@
 A Letter to Momo (2011)
+Annihilation (2018)
+Ex Machina (2014)
 Glengarry Glen Ross (1992)
 New York, New York (1977)
 Seven Chances (1927)
 Short Cuts (1993)
+The Internet's Own Boy (2014)
 The Love Witch (2016)
+The Rise and Fall of English Montreal - William Weintraub
 The World's Greatest Sinner (1962)
 The Year Punk Broke (1992)
 Violent Cop (1989)

@@ -14,6 +14,7 @@
  Bill Callahan - Letters to Emma Bowlcut
  Bruce Sterling - Involution Ocean
  Chris Salter - Alien Agency
+ Christina Sharpe - In the Wake: On Blackness and Being
  Cixin Liu - The three body problem
  Colson Whitehead - The Underground Railroad
  Cormac McCarthy - The Road
@@ -37,6 +38,7 @@
  James Baldwin - Notes from a Native Son
  Jan Westerhoff - Reality: A Very Short Introduction
  Jane Mayer - Dark Money
+ John Berger - Ways of Seeing
  John Cassavetes - Cassavetes on Cassavetes
  John Emil Vincent - Excitement Tax
  John Green - Will Grayson, Will Grayson
@@ -61,6 +63,7 @@
  Robert A. Heinlein - Stranger in a Strange Land
  Robert D. Putnam - Bowling Alone
  Robert M Pirsig - Zen and the Art of Motorcycle Maintenance
+ Ryan Holiday - Conspiracy [...]
  Stanley Cohen - Folk Devils and Moral Panics
  Sylvia Plath - The Bell Jar
  Tariq Nasheed - The Mack Within
@@ -83,5 +86,5 @@
  ~Eula Biss - Notes from No Man's Land
  ~Joan Didion - South and West
  ~Mary Shelley - Frankenstein
+ ~Ramond Carver - Short Cuts
  ~Steffanie Ling - Nascar
-Ryan Holiday - Conspiracy: Peter Thiel, Hulk Hogan, Gawker, and the Anatomy of Intrigue

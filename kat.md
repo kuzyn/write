@@ -8,3 +8,5 @@
 8. my father has gone bankrupt building two windmills in tcekoslovakia
 9. when looking at pictures of anna karina before/now "wow it's like when they suddently show you the face of the guy in a porn movie"
 10. talking about me going to bed: are you giving up already
+11. responding to a shop owner who says 'you can stitch that up easily', 'i know i know i am more than just a pretty face'
+12. talking about why she does not like a guy but do not remember why, 'something must have happened but i cannot remember. i think i put it in the bad box'

@@ -28,6 +28,9 @@ Roy Buchanan - Roy Buchanan
 Roy Buchanan - When a Guitar Plays the Blues
 Sister Rosetta Tharpe - Live in Paris
 Sparks - Kimono My House
+Taeko Ohnoki - Sunshower
+Takako Mamiya - Love Trip
+Tatsuro Yamashita - Melodies
 Tatsuro Yamashita - SPACY
 Velly Joonas - Stopp, Seisky Aeg!
 Waylon Jennings - Good Hearted Woman
