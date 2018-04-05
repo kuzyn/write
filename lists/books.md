@@ -23,6 +23,7 @@
  David Carr - The Night of the Gun
  E-Flux Journal - May 31, 2016
  Edward Said - Orientalism
+ Embracing Defeat - John W Dower
  Franco Bifo Berardi - After the Future
  Franz Kafka - Amerika
  Giorgio Agamben - The Open: Man and Animal
