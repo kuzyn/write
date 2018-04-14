@@ -34,3 +34,4 @@ Tatsuro Yamashita - Melodies
 Tatsuro Yamashita - SPACY
 Velly Joonas - Stopp, Seisky Aeg!
 Waylon Jennings - Good Hearted Woman
+Waylon Jennings - Honky Tonk Heroes
