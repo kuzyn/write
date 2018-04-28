@@ -11,3 +11,5 @@
 11. responding to a shop owner who says 'you can stitch that up easily', 'i know i know i am more than just a pretty face'
 12. talking about why she does not like a guy but do not remember why, 'something must have happened but i cannot remember. i think i put it in the bad box'
 13. 'did you come from the angel place?'
+14. i got billy zane's number
+15. she is the queen of double cream

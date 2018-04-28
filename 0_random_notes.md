@@ -1,3 +1,7 @@
+petrol might as well be decomposed ancestors from industrial civilisations fifty millions years ago. never learn.
+
++++
+
 "i can show you the door, but it's up to you to turn the doorknob" (when talking about a boy)
 
 +++

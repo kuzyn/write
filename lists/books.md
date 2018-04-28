@@ -21,6 +21,7 @@
  Dave Hill - Tasteful Nudes
  David Berman - Actual Air
  David Carr - The Night of the Gun
+ David Curtis - The Castoriadis Reader
  E-Flux Journal - May 31, 2016
  Edward Said - Orientalism
  Embracing Defeat - John W Dower

@@ -1,7 +1,3 @@
-?Moon Gangs - Earth Loop
-?Mount Eerie - Now Only
-?Soft As Snow Deep Wave
-?Unknown Mortal Orchestra - Sex and Food
 Alice Clark - Alice Clark
 Doug Hream Blunt - My Name is Doug Hream Blunt
 Electric Light Orchestra - Out of the blue
@@ -23,6 +19,8 @@ Junior Brown - Semi Crazy
 Jóhann Jóhannsson - IBM 1401, A User's Manual
 Les Paul & Chet Atkin - Guitar Monsters
 Les Paul - The New Sound
+Moon Gangs - Earth Loop
+Mount Eerie - Now Only
 Parlour - Parlour
 Roy Buchanan - Roy Buchanan
 Roy Buchanan - When a Guitar Plays the Blues
@@ -35,3 +33,4 @@ Tatsuro Yamashita - SPACY
 Velly Joonas - Stopp, Seisky Aeg!
 Waylon Jennings - Good Hearted Woman
 Waylon Jennings - Honky Tonk Heroes
+`********` - The Drink (WEIRD105LP)
