@@ -83,10 +83,11 @@
  Yuval Hoah Harari - Sapiens
  Yuval Noah Harari - Homo Deus
  Zadie Smith - Swing Time
- ~
+ ~Charles Bukowski - Pulp
  ~Cormac McCarthy - Blood Meridian
  ~Eula Biss - Notes from No Man's Land
  ~Joan Didion - South and West
  ~Mary Shelley - Frankenstein
  ~Ramond Carver - Short Cuts
  ~Steffanie Ling - Nascar
+ ~Truman Capote - Breakfast at Tiffany's

@@ -13,3 +13,4 @@
 13. 'did you come from the angel place?'
 14. i got billy zane's number
 15. she is the queen of double cream
+16. my knowledge of men... it's on point. i've made it

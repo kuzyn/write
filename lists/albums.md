@@ -1,8 +1,6 @@
 Alice Clark - Alice Clark
-Doug Hream Blunt - My Name is Doug Hream Blunt
 Electric Light Orchestra - Out of the blue
 Essaie Pas - New Path
-Frank Sinatra - In the Wee Small Hours
 Frank Sinatra - Trilogy
 George Jones - I Get Lonely in a Hurry
 James Blood Ulmer - Birthright
@@ -32,5 +30,4 @@ Tatsuro Yamashita - Melodies
 Tatsuro Yamashita - SPACY
 Velly Joonas - Stopp, Seisky Aeg!
 Waylon Jennings - Good Hearted Woman
-Waylon Jennings - Honky Tonk Heroes
 `********` - The Drink (WEIRD105LP)
