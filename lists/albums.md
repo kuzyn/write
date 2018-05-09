@@ -14,20 +14,10 @@ John Prine - Great Days
 Johnny Guitar Watson - A Real Mother For Ya
 Johnny Guitar Watson - Ain't That a Bitch
 Junior Brown - Semi Crazy
-Jóhann Jóhannsson - IBM 1401, A User's Manual
 Les Paul & Chet Atkin - Guitar Monsters
 Les Paul - The New Sound
 Moon Gangs - Earth Loop
 Mount Eerie - Now Only
 Parlour - Parlour
-Roy Buchanan - Roy Buchanan
-Roy Buchanan - When a Guitar Plays the Blues
 Sister Rosetta Tharpe - Live in Paris
-Sparks - Kimono My House
-Taeko Ohnoki - Sunshower
-Takako Mamiya - Love Trip
-Tatsuro Yamashita - Melodies
-Tatsuro Yamashita - SPACY
-Velly Joonas - Stopp, Seisky Aeg!
 Waylon Jennings - Good Hearted Woman
-`********` - The Drink (WEIRD105LP)
