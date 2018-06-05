@@ -1,3 +1,35 @@
+***
+
+unsource: "get out of here you book learner. with your booklearned words"
+
+***
+
+m. twain: if it's your job to eat the frog, eat it first thing in the morning
+
+***
+
+me: "have you ever been to his place?"
+her: "no"
+me: "one day you're going to go to his place and you will see a drawer, you will open this drawer and inside will be a picture of you caked in cum"
+
+*** 
+
+"addiction by design" las vegas gambling machine
+james briddle
+
+me: most of the technology that makes up the web is ditributed (dns, hosting, caching), how important would it be to to distribute reformative research groups, standars, etc
+
+***
+
+lovebully taught me to make putanesca
+lovebully said i had an oral fixation
+
++++
+
+grand froid: when you completely stops the circulation in the body. you can do it 20 minutes at a time. zero new oxigen in the brain.
+
++++
+
 petrol might as well be decomposed ancestors from industrial civilisations fifty millions years ago. never learn.
 
 +++

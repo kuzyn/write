@@ -1,0 +1,7 @@
+Out of Lancaster Lane, a doorman gave the thumbs up to two guys in a car. The car was black and fast and very expensive. The guy inside were young and white. The doorman uniform was a heavy blue fetl jacket, with two row of buttons running down. I thought that the thumbs up was very defferential, since the guys seemed even younger than the doorman.
+
+I made my way to Hide Park around noon and the sky was spotless. The green all around had reached this perfecly uniform glow, when only the sun help you differenciate the trees and the plants. The weather was cool under the shadow and perfect elsewhere. A curly soft dog came running through the grass and greated me with licks. Birds chirping. Trees in bloom. In the park, there was couple of child on horse, big and tosted white. Some sort of horseback riding club. I thought of it again: horses in Hyde Park, horses in London. I walked down to the Italian Gardens and read the short description, then looked down to see the V&A that the king had had carved for his queen, like a kid with a swiss army knife.
+
+In front of the Kensington Palace, there was a ad that proposed to "escape to the past". Then in front of me a guy threw his half eaten icecream cone into the pond. It was like he ejected it away from his body, his movement was so springy and automatic. United Kingdom. City of London Corporation. On this stinking swamp was build a sepultura from two of the most repugnant technologies ever created: monarchy and corporation. Not only this place breeds people like ice-cream-man, it also attracts them.
+
+

@@ -40,6 +40,7 @@
  James Baldwin - Notes from a Native Son
  Jan Westerhoff - Reality: A Very Short Introduction
  Jane Mayer - Dark Money
+ Joan Didion - Slouching Towards Bethlehem
  John Berger - Ways of Seeing
  John Cassavetes - Cassavetes on Cassavetes
  John Emil Vincent - Excitement Tax
@@ -88,6 +89,7 @@
  ~Eula Biss - Notes from No Man's Land
  ~Joan Didion - South and West
  ~Mary Shelley - Frankenstein
- ~Ramond Carver - Short Cuts
+ ~Melissa Broder - So Sad Today
+ ~Raymond Carver - Short Cuts
  ~Steffanie Ling - Nascar
  ~Truman Capote - Breakfast at Tiffany's

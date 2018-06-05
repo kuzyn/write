@@ -14,3 +14,6 @@
 14. i got billy zane's number
 15. she is the queen of double cream
 16. my knowledge of men... it's on point. i've made it
+17. you just want to drain your ballsack
+18. he has the potential to enter my vagina... yeah... that's all
+19. hello hello can i book myself for mustache removal please
