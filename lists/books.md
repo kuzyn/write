@@ -76,6 +76,7 @@
  Thomas Pynchon - Gravity's Rainbow
  Tracy K. Smith - Wade in the Water
  Truman Capote - In Cold Blood
+ Ursula Le Guin - The Dispossessed
  Victor Pelevin - Clay Machine-Gun
  Vladimir Nabokov - Speak, Memory
  W.G. Sebald - Austerlitz
