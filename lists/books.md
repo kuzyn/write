@@ -88,6 +88,7 @@
  ~Charles Bukowski - Pulp
  ~Cormac McCarthy - Blood Meridian
  ~Eula Biss - Notes from No Man's Land
+ ~Joan Didion - Slouching Towards Bethlehem
  ~Joan Didion - South and West
  ~Mary Shelley - Frankenstein
  ~Melissa Broder - So Sad Today

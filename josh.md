@@ -26,4 +26,4 @@ the cfo came in and she said
 he's been freed
 and everyone cheered
 
-deep
+poor lad
