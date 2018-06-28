@@ -17,3 +17,5 @@
 17. you just want to drain your ballsack
 18. he has the potential to enter my vagina... yeah... that's all
 19. hello hello can i book myself for mustache removal please
+20. but yeah, what a come back. the day i come bakc i get herpes, cold sore and period
+21. and then, when I have the sperm...
