@@ -19,3 +19,6 @@
 19. hello hello can i book myself for mustache removal please
 20. but yeah, what a come back. the day i come bakc i get herpes, cold sore and period
 21. and then, when I have the sperm...
+22. love yourself go fuck yourself
+23. it's like that time when i almost ate this guy's pubes because i thought it would make him like me more
+24. fuuuuck peepee is outside "peepee?" THE PIMP!
