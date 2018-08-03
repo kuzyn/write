@@ -13,6 +13,7 @@
  Benjamin H. Bratton - The Stack
  Bill Callahan - Letters to Emma Bowlcut
  Bruce Sterling - Involution Ocean
+ Carol Shields - The Stone Diaries
  Chris Salter - Alien Agency
  Christina Sharpe - In the Wake: On Blackness and Being
  Cixin Liu - The three body problem

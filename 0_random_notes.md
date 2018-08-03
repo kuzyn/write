@@ -1,25 +1,39 @@
-***
+write about this, as a script, it's a movie really: a public servant didn't go
+to work for 10 years. he said he was working remotely but no evidence was found
+of that. he had someone punch out in themorning, out at night, the job was some
+sort of archivist. instead he created and ran a male brothel, and created a
+sexual comic book hero that goes into sexual adventures
+
+··· 
+
+a balloon floating a way, in some letter or number shape, at that time of the
+day when it's dark but the sky is very blue and clear and lit up from the
+liminal
+
+···
 
 unsource: "get out of here you book learner. with your booklearned words"
 
-***
+···
 
 m. twain: if it's your job to eat the frog, eat it first thing in the morning
 
-***
+···
 
 me: "have you ever been to his place?"
 her: "no"
 me: "one day you're going to go to his place and you will see a drawer, you will open this drawer and inside will be a picture of you caked in cum"
 
-*** 
+··· 
 
 "addiction by design" las vegas gambling machine
 james briddle
 
 me: most of the technology that makes up the web is ditributed (dns, hosting, caching), how important would it be to to distribute reformative research groups, standars, etc
 
-***
+i.e. "eventual consistency"
+
+···
 
 lovebully taught me to make putanesca
 lovebully said i had an oral fixation
@@ -75,7 +89,7 @@ and there is one missing
 
 walking behind a girl after a nice wistful evening of meat and wine and you think that "she will be something" in the narrative but actually she simply walks in front of you forever and you never see here face. she stops at a glass window, check her lipstick. leather boots. keeps walking and you never, ever see her face or know more about her
 
-then you remember the beautiful story of the yogurt and fruits, being compulsively eaten, this "mom" feeling of wholesomeness and how it reassures and pumps dread into your balloon heart. yogurt. curded mother's milk. a very nice still life. a very nice picture of suffering, that looks like a picture of wholesome breakfast
+then you remember the beautiful story of the yogurt and fruits, being compulsively eaten, this "mom" feeling of wholesomeness and how it reassures and pumps dread into your balloon heart. yogurt. curdled mother's milk. a very nice still life. a very nice picture of suffering, that looks like a picture of wholesome breakfast
 
 ±±±
 
@@ -93,7 +107,9 @@ i am having a beer in front of the ft lauderdale gate, at yul, the day after the
 
 ±±±
 
-my first heartache was when meryl got shot by sw
+my first heartache was when meryl got shot by sniperwolf
+second was when aeris was killed by sephiroth
+third when my first girldfriend broke up
 
 you close your eyes and in the dark of not seeing 
 you think that you can tell that something's missing
@@ -116,7 +132,7 @@ and he looked straight at mariane while the match burned, slowly, like a fuse to
 
 the match curled and blacked on itself, then on to fishgut's finger.
 
-fishgut had been in and out of prison, he could tell stories. he'd run dope and beat up people and probably killed a few of them too. now that the beach had been deserted, there was only the white crash of the sea and a pyramid of amber. a couple of kids had followed mariane and fishgut that day, probably because not a whole lot was usually going on around in the bushes. that's how fishgut called that place: the bushes. he had been nice to the kid, buying them a few coke and that hard caramel toffee, patting them on the head. good uncle kind of stuff. "how old are you boy?" and he'd grin enough so you'd see the gap between his canine and molar. he was balding a bit, keeping it short. a strong chin. "go buy me a ketchup chip, and get something for you with the change kid".
+fishgut had been in and out of prison, he could tell stories. he'd run dope and beat up people and probably killed a few of them too. now that the beach had been deserted, there was only the white crash of the sea and a pyramid of amber. a couple of kids had followed mariane and fishgut that day, probably because not a whole lot was usually going on around in the bushes. that's how fishgut called that place: the bushes. he had been nice to the kid, buying them a few cake and that hard caramel toffee, patting them on the head. good uncle kind of stuff. "how old are you boy?" and he'd grin enough so you'd see the gap between his canine and molar. he was balding a bit, keeping it short. a strong chin. "go buy me a ketchup chip, and get something for you with the change kid".
 
 mariane had like that, how brotherly he was.
 
@@ -132,5 +148,3 @@ now there's a new code,
 and there is a new empire:
 
 the weight of data; servitude of the self.
-
-

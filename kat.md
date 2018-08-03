@@ -22,3 +22,4 @@
 22. love yourself go fuck yourself
 23. it's like that time when i almost ate this guy's pubes because i thought it would make him like me more
 24. fuuuuck peepee is outside "peepee?" THE PIMP!
+25. did i go to the toilet?
