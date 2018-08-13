@@ -1,3 +1,8 @@
+me: it's easy to do something wrong the first time, but difficult to do it wrong
+the second time
+
+···
+
 write about this, as a script, it's a movie really: a public servant didn't go
 to work for 10 years. he said he was working remotely but no evidence was found
 of that. he had someone punch out in themorning, out at night, the job was some
