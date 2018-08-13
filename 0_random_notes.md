@@ -1,3 +1,11 @@
+in a foul mood today
+i saw two things today
+a guy with a small star tattooed on the tip of his nose
+a guy with a tshirt that said
+buzz off, malaria
+
+···
+
 me: it's easy to do something wrong the first time, but difficult to do it wrong
 the second time
 
