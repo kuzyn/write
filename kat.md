@@ -23,3 +23,6 @@
 23. it's like that time when i almost ate this guy's pubes because i thought it would make him like me more
 24. fuuuuck peepee is outside "peepee?" THE PIMP!
 25. did i go to the toilet?
+26. he had fassbender body, impossible to imagine small dick on this
+27. they say when you go to break up, you smoke deeper, you drink deeper. i
+    think i got stuck in break up mode

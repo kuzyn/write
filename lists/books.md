@@ -23,6 +23,7 @@
  David Berman - Actual Air
  David Carr - The Night of the Gun
  David Curtis - The Castoriadis Reader
+ Duty Free Art - Hito Steyerl
  E-Flux Journal - May 31, 2016
  Edward Said - Orientalism
  Embracing Defeat - John W Dower
@@ -77,6 +78,7 @@
  Thomas Pynchon - Gravity's Rainbow
  Tracy K. Smith - Wade in the Water
  Truman Capote - In Cold Blood
+ Ursula K. Le Guin - The Ones Who Walk Away from Omelas
  Ursula Le Guin - The Dispossessed
  Victor Pelevin - Clay Machine-Gun
  Vladimir Nabokov - Speak, Memory
@@ -89,6 +91,7 @@
  ~Charles Bukowski - Pulp
  ~Cormac McCarthy - Blood Meridian
  ~Eula Biss - Notes from No Man's Land
+ ~Eula Biss - On Immunity: An Innoculation
  ~Joan Didion - Slouching Towards Bethlehem
  ~Joan Didion - South and West
  ~Mary Shelley - Frankenstein

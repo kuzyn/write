@@ -1,3 +1,8 @@
+
+timmmy teory of after life: you get to get exact answers to any questions you have
+
+···
+
 in a foul mood today
 i saw two things today
 a guy with a small star tattooed on the tip of his nose
