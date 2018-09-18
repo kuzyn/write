@@ -1,3 +1,6 @@
+"better to be judged by 12 than carried by six"
+
+···
 
 timmmy teory of after life: you get to get exact answers to any questions you have
 

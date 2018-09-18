@@ -26,3 +26,4 @@
 26. he had fassbender body, impossible to imagine small dick on this
 27. they say when you go to break up, you smoke deeper, you drink deeper. i
     think i got stuck in break up mode
+28. "menaupose!"
