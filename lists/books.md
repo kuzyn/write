@@ -9,6 +9,7 @@
  Angela Nagle - Kill All Normies
  Arthur Shopenhauer - The World as Will and Representation
  Artur Koestler - The Ghost in the Machine
+ Aymeric Mansoux - Sandbox Culture
  Ben Lerner - 10 04
  Benjamin H. Bratton - The Stack
  Bill Callahan - Letters to Emma Bowlcut
@@ -29,6 +30,7 @@
  Embracing Defeat - John W Dower
  Franco Bifo Berardi - After the Future
  Franz Kafka - Amerika
+ Frederic Jameson - Postmodernism, or, The Cultural Logic of Late Capitalism
  Giorgio Agamben - The Open: Man and Animal
  Giuseppe Longo - Perspectives on Organisms
  Hannah Arendt - The Life of the Mind
@@ -88,12 +90,14 @@
  Yuval Hoah Harari - Sapiens
  Yuval Noah Harari - Homo Deus
  Zadie Smith - Swing Time
+ ~Aude Anquetil - A CASA MIA
  ~Charles Bukowski - Pulp
  ~Cormac McCarthy - Blood Meridian
  ~Eula Biss - Notes from No Man's Land
  ~Eula Biss - On Immunity: An Innoculation
  ~Joan Didion - Slouching Towards Bethlehem
  ~Joan Didion - South and West
+ ~Jorge Luis Borges - Labyrinths
  ~Mary Shelley - Frankenstein
  ~Melissa Broder - So Sad Today
  ~Raymond Carver - Short Cuts
