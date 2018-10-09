@@ -1,3 +1,22 @@
+is the form even important in an experimental/drone piece? or is the point experimental, both from the maker's
+perspective and for the viewer/listener. it is experiential, as in, we read the signs, we try to interpret that
+language, but the meaning is different because we haven't agreed to this language. he says rabbit (i.e. show fur)
+i hear mink.
+
+what about an alphabet of images? not pictogram or hieroglifs, but something close to the poetics of written asian
+language. completely disconnected from form. a traveling to the left means bowl or vessel/container. a blue car means
+cereals. a traveling to the left with a blue car in frame means a bowl of cereal.
+
+···
+
+game idea: you need to write a story. it's a journalism game. your story
+needs sourcing, pictures, quotes, etc. there is a "believability" score. there
+is a "factual accuracy" score. there is a "street cred" score. there is a "sensational" score. etc. the words
+are written, and you decide what to include (i.e. cite a person, or use "a
+source familiar with the matter" (accuracy vs street cred))
+
+···
+
 "better to be judged by 12 than carried by six"
 
 ···
@@ -27,7 +46,7 @@ sexual comic book hero that goes into sexual adventures
 
 ··· 
 
-a balloon floating a way, in some letter or number shape, at that time of the
+a balloon floating away, in some letter or number shape, at that time of the
 day when it's dark but the sky is very blue and clear and lit up from the
 liminal
 
