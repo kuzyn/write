@@ -64,6 +64,7 @@
  M. Mitchell Waldrop - The Dream Machine
  Maggie Nelson - Bleuets
  Nassim Nicholas Taleb - Skin in the Game
+ NourbeSe Philips - Zong!
  Oliver Sacks - On the Move: A life
  Ralph Elison - The Invisible Man
  Raymond Carver - What we talk about when we talk about love
@@ -75,6 +76,7 @@
  Sylvia Plath - The Bell Jar
  Tariq Nasheed - The Mack Within
  Teju Cole - Known and Strange Things
+ The Master and Margarito - Mikhail Bulgakov
  Thomas Bernhard - The Loser
  Thomas Pynchon - Bleeding Edge
  Thomas Pynchon - Gravity's Rainbow
