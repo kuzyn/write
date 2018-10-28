@@ -1,3 +1,5 @@
+shaking lot a shitting dog on a frozen pond
+
 touched by the butt, owned by the mouth
 
 lord, do not forgive me for I have not forgiven myself
