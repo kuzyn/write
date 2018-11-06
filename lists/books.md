@@ -44,7 +44,6 @@
  James Baldwin - Notes from a Native Son
  Jan Westerhoff - Reality: A Very Short Introduction
  Jane Mayer - Dark Money
- Joan Didion - Slouching Towards Bethlehem
  John Berger - Ways of Seeing
  John Cassavetes - Cassavetes on Cassavetes
  John Emil Vincent - Excitement Tax
@@ -56,7 +55,7 @@
  Julio Cortazar - Hopscotch
  Karl Marx - Das Kapital
  Kurt Vonnegut - Slaughterhouse-Five
- Kurt Vonnegut Jr. - Welcome To The Monkey House
+ Kurt Vonnegut - Welcome To The Monkey House
  Laszlo Krasznahorkai - Satantango
  Leo Tolstoy - The Death of Ivan Ilych
  Leo Tolstoy - War and Peace
@@ -72,7 +71,7 @@
  Raymond Carver - What we talk about when we talk about love
  Robert A. Heinlein - Stranger in a Strange Land
  Robert D. Putnam - Bowling Alone
- Robert M Pirsig - Zen and the Art of Motorcycle Maintenance
+ Robert M. Pirsig - Zen and the Art of Motorcycle Maintenance
  Ryan Holiday - Conspiracy [...]
  Stanley Cohen - Folk Devils and Moral Panics
  Sylvia Plath - The Bell Jar
@@ -84,7 +83,7 @@
  Thomas Pynchon - Gravity's Rainbow
  Tracy K. Smith - Wade in the Water
  Truman Capote - In Cold Blood
- Ursula K. Le Guin - The Ones Who Walk Away from Omelas
+ Ursula Le Guin - The Ones Who Walk Away from Omelas
  Ursula Le Guin - The Dispossessed
  Victor Pelevin - Clay Machine-Gun
  Vladimir Nabokov - Speak, Memory
