@@ -83,8 +83,8 @@
  Thomas Pynchon - Gravity's Rainbow
  Tracy K. Smith - Wade in the Water
  Truman Capote - In Cold Blood
- Ursula Le Guin - The Ones Who Walk Away from Omelas
  Ursula Le Guin - The Dispossessed
+ Ursula Le Guin - The Ones Who Walk Away from Omelas
  Victor Pelevin - Clay Machine-Gun
  Vladimir Nabokov - Speak, Memory
  W.G. Sebald - Austerlitz
@@ -102,6 +102,7 @@
  ~Joan Didion - South and West
  ~Jorge Luis Borges - Labyrinths
  ~Mary Shelley - Frankenstein
+ ~Matt Mochary - The Great CEO Within
  ~Melissa Broder - So Sad Today
  ~Raymond Carver - Short Cuts
  ~Steffanie Ling - Nascar
