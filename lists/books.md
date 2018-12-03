@@ -63,6 +63,7 @@
  M. Mitchell Waldrop - The Dream Machine
  Maggie Nelson - Bleuets
  Maggy Nelson - Shiner
+ Masha Gessen - The Future Is History
  Miles: The Autobiography
  Nassim Nicholas Taleb - Skin in the Game
  NourbeSe Philips - Zong!
