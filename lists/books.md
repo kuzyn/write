@@ -24,19 +24,21 @@
  David Berman - Actual Air
  David Carr - The Night of the Gun
  David Curtis - The Castoriadis Reader
- Duty Free Art - Hito Steyerl
  E-Flux Journal - May 31, 2016
  Edward Said - Orientalism
  Embracing Defeat - John W Dower
+ Emily Horne / Tim Maly - The Inspection House: An Impertinent Field Guide to Modern Surveillance
  Franco Bifo Berardi - After the Future
  Franz Kafka - Amerika
  Frederic Jameson - Postmodernism, or, The Cultural Logic of Late Capitalism
+ Geoff Manaugh - A Burglar's Guide to the City
  Giorgio Agamben - The Open: Man and Animal
  Giuseppe Longo - Perspectives on Organisms
  Hannah Arendt - The Life of the Mind
  Henri Pointcaré - La Science et l'Hypothèse
  Henry Miller - Tropic of Capricorn
  Howard Zinn - A People's History of the United States
+ Human Transit - Jaret Walker
  Ingrid Burrington - Network of New York
  J.W. Dunne - An Experiment with Time
  Jack London - The People of the Abyss
@@ -44,6 +46,7 @@
  James Baldwin - Notes from a Native Son
  Jan Westerhoff - Reality: A Very Short Introduction
  Jane Mayer - Dark Money
+ Jeff Schneider - Psychiatric Tissues: The Arab On Radar Book
  John Berger - Ways of Seeing
  John Cassavetes - Cassavetes on Cassavetes
  John Emil Vincent - Excitement Tax
@@ -66,6 +69,7 @@
  Masha Gessen - The Future Is History
  Miles: The Autobiography
  Nassim Nicholas Taleb - Skin in the Game
+ Nick Bilton - American Kingpin [...]
  NourbeSe Philips - Zong!
  Olga Tokarezuk - Flights
  Oliver Sacks - On the Move: A life
@@ -98,6 +102,7 @@
  ~Aude Anquetil - A CASA MIA
  ~Charles Bukowski - Pulp
  ~Cormac McCarthy - Blood Meridian
+ ~Duty Free Art - Hito Steyerl
  ~Eula Biss - Notes from No Man's Land
  ~Eula Biss - On Immunity: An Innoculation
  ~Joan Didion - Slouching Towards Bethlehem

@@ -1,3 +1,31 @@
+the attempt at street cred of academics using variation "like x but on bad acid" makes me want to give up
+
+···
+
+"Mrs. Thatcher will now realise that Britain cannot occupy our country and torture our prisoners and shoot our people in their own streets and get away with it. Today we were unlucky, but remember we only have to be lucky once. You will have to be lucky always. Give Ireland peace and there will be no more war."
+(IRA claiming the Brighton Hotel bombing)
+
+···
+
+a man's work is on youtube forever, dead or not
+
+···
+
+projective data
+cinematically driven
+"paspresentfuture"
+economics as a design field
+
+···
+
+transvoid gendermorph
+
+···
+
+"it's a jumper's market... imagine what we can do (line from a script of the history of jackass filmed by david fincher)"
+
+···
+
 is the form even important in an experimental/drone piece? or is the point experimental, both from the maker's
 perspective and for the viewer/listener. it is experiential, as in, we read the signs, we try to interpret that
 language, but the meaning is different because we haven't agreed to this language. he says rabbit (i.e. show fur)
