@@ -3,6 +3,7 @@
  Alain Damasio - La Zone Du Dehors
  Alexei Yurchak - Everything was forever, until it was no more
  Alice Munro - Hateship, Friendship, Courtship, Loveship, Marriage
+ Alvin Toffler - The Third Wave
  Amarillo Slim Preston - Amarillo Slim in a World Full of Fat People
  Anais Nin - A Literate Passion: Letters of Anais Nin & Henry Miller
  Andrew Carnegie - The Gospel of Wealth
@@ -28,9 +29,11 @@
  Edward Said - Orientalism
  Embracing Defeat - John W Dower
  Emily Horne / Tim Maly - The Inspection House: An Impertinent Field Guide to Modern Surveillance
+ Francis Picabia - Jésus-Christ rastaquouère
  Franco Bifo Berardi - After the Future
  Franz Kafka - Amerika
  Frederic Jameson - Postmodernism, or, The Cultural Logic of Late Capitalism
+ Fyodor Dostoyevsky - The Dream of a Ridiculous Man
  Geoff Manaugh - A Burglar's Guide to the City
  Giorgio Agamben - The Open: Man and Animal
  Giuseppe Longo - Perspectives on Organisms
@@ -54,7 +57,7 @@
  John Lewis - Walking with the Wind
  John McPhee - Levels of the Game
  Joseph Campbell - The Hero with a Thousand Faces
- Julian Jaynes - The origin of conciousness ...
+ Julian Jaynes - The origin of conciousness [...]
  Julio Cortazar - Hopscotch
  Karl Marx - Das Kapital
  Kurt Vonnegut - Slaughterhouse-Five
@@ -65,7 +68,6 @@
  Lev Manovich - The Language of New Media
  M. Mitchell Waldrop - The Dream Machine
  Maggie Nelson - Bleuets
- Maggy Nelson - Shiner
  Masha Gessen - The Future Is History
  Miles: The Autobiography
  Nassim Nicholas Taleb - Skin in the Game
@@ -87,6 +89,7 @@
  Thomas Bernhard - The Loser
  Thomas Pynchon - Bleeding Edge
  Thomas Pynchon - Gravity's Rainbow
+ Tom Wolfe - The Right Stuff
  Tracy K. Smith - Wade in the Water
  Truman Capote - In Cold Blood
  Ursula Le Guin - The Dispossessed
@@ -108,6 +111,7 @@
  ~Joan Didion - Slouching Towards Bethlehem
  ~Joan Didion - South and West
  ~Jorge Luis Borges - Labyrinths
+ ~Maggy Nelson - Shiner
  ~Mary Shelley - Frankenstein
  ~Matt Mochary - The Great CEO Within
  ~Melissa Broder - So Sad Today

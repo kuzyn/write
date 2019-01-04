@@ -1,3 +1,11 @@
+
+- we have an experimental treatment that could save you from this terminal condition, it comes in the form of a patch
+- you mean like a nicotine patch?
+- actually, I mean more like a "soul patch". well, to be frank, it is literally a soul patch
+- hhhgggnnnnnn
+
+···
+
 the attempt at street cred of academics using variation "like x but on bad acid" makes me want to give up
 
 ···
