@@ -1,3 +1,6 @@
+last night dreamt that i had committed murders, not remember the murder themselves, but knowing that i had done them, and being in the situation where it was just a matter of time before the cops figured it out, and they were swarming the village, and there was this inertia in the air, the unfliching law coming for me, coming to take me, coming to unmask the horrors for everyone to see. it was a very strange feeling.
+
+···
 
 - we have an experimental treatment that could save you from this terminal condition, it comes in the form of a patch
 - you mean like a nicotine patch?
