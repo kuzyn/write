@@ -27,3 +27,4 @@
 27. they say when you go to break up, you smoke deeper, you drink deeper. i
     think i got stuck in break up mode
 28. "menaupose!"
+29. I don't like them penis shaped i like them a bit scifi
