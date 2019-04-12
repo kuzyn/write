@@ -1,3 +1,12 @@
+i always liked short hair because when the ghost left it had long hair but then the ghost came back it wore them short
+
+···
+
+- do you ever think about simulated universe?
+- i don't have the money
+
+···
+
 last night dreamt that i had committed murders, not remember the murder themselves, but knowing that i had done them, and being in the situation where it was just a matter of time before the cops figured it out, and they were swarming the village, and there was this inertia in the air, the unfliching law coming for me, coming to take me, coming to unmask the horrors for everyone to see. it was a very strange feeling.
 
 ···
