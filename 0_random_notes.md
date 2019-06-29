@@ -1,3 +1,7 @@
+cut your lips on the foil of a blister pack
+
+···
+
 i always liked short hair because when the ghost left it had long hair but then the ghost came back it wore them short
 
 ···
