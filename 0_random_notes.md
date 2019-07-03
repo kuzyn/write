@@ -1,3 +1,29 @@
+you are the lightning rod of the world, of happenstances. the best your can do is avoid being zapped
+
+···
+
+in may, a girl with a denim jacket with embroided on the back, in cursive, "april is the cruelest of month"
+
+···
+
+i wish i could remember more than the facts
+and the facts are that we crashed the dog show
+
+···
+
+steve is dominating his shirts
+
+···
+
+25 avril 2019, 10:50 am
+j'ai chie sous la manche
+
+···
+
+full metal papy
+
+···
+
 cut your lips on the foil of a blister pack
 
 ···
