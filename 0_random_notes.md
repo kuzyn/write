@@ -1,3 +1,7 @@
+when i saw how she chopped the brocolli on friday night, i knew that i was in for a very long week-end
+
+···
+
 you are the lightning rod of the world, of happenstances. the best your can do is avoid being zapped
 
 ···
