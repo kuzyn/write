@@ -1,3 +1,12 @@
+woman talking to herself at a mcdonald "these pants have been to china and
+back.....and you're the only person who shat in them"
+
+···
+
+"the Great Alarm" = everyone wake up all at the same time
+
+···
+
 when i saw how she chopped the brocolli on friday night, i knew that i was in for a very long week-end
 
 ···

@@ -8,7 +8,7 @@ almost seeing me on a bike
 in berlin
 
 i always envied how coolly you moved through space
-​​countries and cities
+countries and cities
 how you could summon friends from anywhere
 
 when i walked in the bar, the game turned strange
